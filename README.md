@@ -4,6 +4,15 @@
 
 ## 计算机
 
+### 计算机基础
+
+1. [程序是怎样跑起来的.epub](https://pan.baidu.com/s/1WiR9WqijcomcD_IO7WInlg) 提取码: 9dm9
+2. [网络是怎样连接的_-_日_户根勤.epub](https://pan.baidu.com/s/1p1TyHeQyIGc1SFQTmgydDg) 提取码: 4dgm
+3. [深入理解计算机系统中文第三版1-300页.pdf](https://pan.baidu.com/s/1kcyw2pqB0uIwfm_b5ETQOQ) 提取码: a4if
+4. [深入理解计算机系统中文第三版301-550页.pdf](https://pan.baidu.com/s/1JQOE3bBlSCxnwJqT20A1sg) 提取码: 53a7
+5. [深入理解计算机系统中文第三版551-775.pdf](https://pan.baidu.com/s/1mtk4HUsiDd4uYLk-KJ8oxw) 提取码: 2n9e
+6. [编码隐匿在计算机软硬件背后的语言.epub](https://pan.baidu.com/s/1peEVKwJrBs1bWrLylSM8Cw) 提取码: 247h
+
 ### 数据结构与算法
 
 1. [大话数据结构](https://pan.baidu.com/s/1VKYAVYqGwxvEPfeEwSX-6A) 提取码: 3bmm
@@ -11,6 +20,10 @@
 ### iOS
 
 1. [RxSwift_Reactive_Programming_with_Swift_v2.0](https://pan.baidu.com/s/1jTmMU7X3hZpK-NHbQSYN1A) 提取码: 737h
+2. [Swift进阶](https://pan.baidu.com/s/1s_Ce0LcPBuXBPxufDbxAcA) 提取码: xpx5
+3. [UTF-8_RxSwift_Reactive_Programming_with_Swift_v2.0.epub](https://pan.baidu.com/s/1AfME-DI-5dZTc9CXyP9Z8Q) 提取码: w4kj
+4. [高性能_iOS_应用开发_-_Gaurav_Vaish.epub](https://pan.baidu.com/s/1wpIa-6Pww11a5GL5HBXM4w) 提取码: knka
+5. [app_架构.pdf](https://pan.baidu.com/s/1k15wQUFmpLDj5sWRCdyfdg) 提取码: 7xuk
 
 ### Python
 
@@ -26,6 +39,12 @@
 #### 概述
 
 1. [人工智能：未来商业与场景落地实操 张泽谦](https://pan.baidu.com/s/1Yzttd_T7HNf2iEVXLnebjQ) 提取码: uayx
+2. [给你一本人工智能入门生意经哈佛商业评论增刊_-_哈佛商业评论.epub](https://pan.baidu.com/s/1SlTZv2RCzKQ_y5UVNLc21g) 提取码: x9v3
+3. [未来简史](https://pan.baidu.com/s/1LoqGGAx7Km3W7sBdkfxESw) 提取码: r2fs
+4. [暗网](https://pan.baidu.com/s/1EBQ-VY4m-DhBGX-zmL8eKw) 提取码: 539q
+5. [三体](https://pan.baidu.com/s/1PlTK1MHxm1KlTD_AK_A0Yw) 提取码: 9f7f
+6. [生命3.0](https://pan.baidu.com/s/1k4QOkJjSbXQ6vx8K6kRkkQ) 提取码: 627y
+7. [玫瑰战争简史](https://pan.baidu.com/s/1cf2pz1lkIeDlO6lFKrjTLQ) 提取码: h75d
 
 #### 机器学习
 
@@ -76,6 +95,10 @@
 ### 版本控制
 
 1. [Git权威指南](https://pan.baidu.com/s/1rAmS0qn0cMW7B6G8lwdP8g) 提取码: gpbj
+
+### 架构
+
+1. [我的架构思想.epub](https://pan.baidu.com/s/1JniPQE10B77EjxIAcxzPYg) 提取码: kr6b
 
 ## 互联网
 
