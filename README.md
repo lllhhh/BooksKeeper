@@ -68,7 +68,7 @@
 
 1. [以交易为生 一](https://pan.baidu.com/s/1iaChIRDKrBri5RBOL9iVLg) 提取码: r1kc
 2. [以交易为生 二](https://pan.baidu.com/s/1K6QJRWrOLiDEfHbFCfDTFA) 提取码: g7tm
-3. [缠中说禅_教你炒股票_理财学院_缠论系列_-_培峰](https://pan.baidu.com/s/1pS5bqMjc1VFmV_Fa7wwY2g) 提取码: tbbk 
+3. [缠中说禅_教你炒股票_理财学院_缠论系列_-_培峰](https://pan.baidu.com/s/1pS5bqMjc1VFmV_Fa7wwY2g) 提取码: tbbk
 4. [股票大作手回忆录](https://pan.baidu.com/s/1XI3zV4Zt3cwX2OTrGyXmcw) 提取码: 2kid
 5. [笑傲股市原书第4版](https://pan.baidu.com/s/1GvHhEVkRkn2FX2vJ48GCRg) 提取码: 87yj
 
@@ -77,6 +77,22 @@
 1. [半小时漫画理财课](https://pan.baidu.com/s/1-O0pzYl0ec1F73q7FvLoDg) 提取码: dv59
 
 ### 经济
+
+1. [行动的勇气金融危机及其余波回忆录](https://pan.baidu.com/s/1AQEsgiisBPXC6YpxY0ZosA) 提取码: sxtb
+2. [十年轮回从亚洲到全球金融危机第三版_-_马沈联涛](https://pan.baidu.com/s/17nF9FcMpUTqd_X0722cnqQ) 提取码: dvku
+3. [资本论套装全3册](https://pan.baidu.com/s/1QXnXGEkpz5dJa_-Gq1GJHw) 提取码: xusq
+4. [涛动周期论_经济周期决定人生财富命运](https://pan.baidu.com/s/1YKuhD6jeGtilY58W0U12rw) 提取码: 8e6j
+5. [国富论-英斯密张晓林王帆](https://pan.baidu.com/s/1VdJmoH3iWUhNzm8wSsLqOA) 提取码: ye8j
+6. [债券投资策略原书第2版_CFA协会金融前沿译丛_-_美克里森兹](https://pan.baidu.com/s/1WZeWb-HTR0o-in6HpQ3qyg) 提取码: 6au5
+7. [经济学了没](https://pan.baidu.com/s/11rerN1bj_W9c-N7RwPW8wA) 提取码: 22y9
+8. [私募股权投资实务与案例（第二版11）-潘启龙](https://pan.baidu.com/s/1q9O3MUGb3bWlbK0zCsvz1g) 提取码: 3u6d
+
+### 金融
+
+1. [Financial_Times金融英语速读套装共10册-mobi](https://pan.baidu.com/s/1q4lxW-AvW8kR_39Z3VbJ6w) 提取码: b5s6
+2. [搞懂金融的第一本书](https://pan.baidu.com/s/1UuDeBAr3H28GAw-dCbpjBQ) 提取码: w73e
+3. [一看就懂的金融常识全图解去梯言系列](https://pan.baidu.com/s/1Os0ovStwhj4hdbY_IumCQA) 提取码: 37ui
+4. [摩根财团美国一代银行王朝和现代金融业的崛起](https://pan.baidu.com/s/1r9BEl_8qBYYkpOub3hZxiw) 提取码: 2ikz
 
 ## 教育
 
