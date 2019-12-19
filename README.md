@@ -71,6 +71,8 @@
 
 ### 理财
 
+1. [半小时漫画理财课](https://pan.baidu.com/s/1-O0pzYl0ec1F73q7FvLoDg) 提取码: dv59
+
 ### 经济
 
 ## 教育
