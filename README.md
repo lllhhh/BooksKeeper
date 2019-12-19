@@ -2,8 +2,7 @@
 
 # BooksKeeper
 
-对各类图书资源的收集，
-所有资源提供百度云地址和提取码。
+> 对各类图书资源的收集，所有资源提供百度云地址和提取码。
 
 ## 计算机
 
@@ -75,8 +74,12 @@
 ### 理财
 
 1. [半小时漫画理财课](https://pan.baidu.com/s/1-O0pzYl0ec1F73q7FvLoDg) 提取码: dv59
+2. [量化投资策略](https://pan.baidu.com/s/15hIhB98LYEgrf4eKMS-pww) 提取码: kqta
+3. [量化投资：策略与技术](https://pan.baidu.com/s/1LOpykf87YyIKOmPq-On6ng) 提取码: bmbk
+4. [通向财务自由之路](https://pan.baidu.com/s/1_avVPDNQrwBFLxCZ1bs3dA) 提取码: ntms
+5. [投资理财股票基金套装看盘方法与技巧](https://pan.baidu.com/s/1wDhqIN5TZhUMPIfzLZZZkQ) 提取码: vb5m
 
-### 经济
+### 经济概论
 
 1. [行动的勇气金融危机及其余波回忆录](https://pan.baidu.com/s/1AQEsgiisBPXC6YpxY0ZosA) 提取码: sxtb
 2. [十年轮回从亚洲到全球金融危机第三版_-_马沈联涛](https://pan.baidu.com/s/17nF9FcMpUTqd_X0722cnqQ) 提取码: dvku
