@@ -76,3 +76,4 @@
 ## 教育
 
 1. [人生护城河](https://pan.baidu.com/s/1pp_11HXRt7ZYWZQqBIWxfw) 提取码: dtcg
+2. [哈佛百年经典套装共38卷](https://pan.baidu.com/s/1XUVIv40zDGHzmYmucZ0VdA) 提取码: xkc3
