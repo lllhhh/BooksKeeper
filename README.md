@@ -25,11 +25,39 @@
 #### 机器学习
 
 1. [机器学习之路](https://pan.baidu.com/s/1luC6ulOQHsSeBxlKKY5kBQ) 提取码: yid7
+2. [《scikit-learn机器学习：常用算法原理及编程实战》_黄永昌.pdf](https://pan.baidu.com/s/1ghcewkE8jqEOsHxlJrDMLQ) 提取码: zy1t)
+3. [机器学习_周志华.pdf](https://pan.baidu.com/s/1Lh2-f-jJtK2NpMUFHxzYsQ)  提取码: 2tsi
+4. [机器学习实战.2013_-_美Peter_Harrington.pdf](https://pan.baidu.com/s/1n7a1KF2dFHdzIATysFKZSw)  提取码: xaje
+5. [机器学习基础.pdf](https://pan.baidu.com/s/19Fv1xDokjGQ6gKzXnM8f4Q) 提取码: ra4h
 
 #### 深度学习
 
 1. [Web安全之强化学习与GAN](https://pan.baidu.com/s/19JuPAUrjxjb79kBL2aH1nA)  提取码: g2ad
 2. [Python深度学习___美弗朗索瓦肖莱](https://pan.baidu.com/s/1Ss6iDCnX4Aol5EJqGq602g) 提取码: rm34
+3. [TensorFlow 官方文档中文版 - v1.2.epub](https://pan.baidu.com/s/1IosXWsz81rJJAeE_2c7Clw) 提取码: cxw1
+4. [reinforcement_learning.pdf](https://pan.baidu.com/s/14wAK49twqQcK1SWhi_YbNA) 提取码: 4tmq
+5. [Recent Advances in Deep Learning 2019.pdf](https://pan.baidu.com/s/1VeaZQg0EPxoHGoLn9WJRwA) 提取码: fvi1
+6. [nndl-book.pdf](https://pan.baidu.com/s/1pcc7y4LsK4bi_ltX2NrP1w) 提取码: vxag
+7. [MLY_V0.5_Full_Draft.pdf](https://pan.baidu.com/s/18J3cKREmfFbObBwhZ-Ltxg)提取码: juum
+8. [keras2.0中文文档.pdf](https://pan.baidu.com/s/1zTQsJlbppFC8j-tbEhcpUw) 提取码: za43
+9. [machine-learning-projects-python.epub](https://pan.baidu.com/s/1kS5dXaDBqfTfsGmRW9ocYA)  提取码: jvmb
+10. [GAN：实战生成对抗网络.pdf](https://pan.baidu.com/s/1W71IcAi202rd6VX1jt3fVA)  提取码: bc85)
+11. [DeppMind.ai hand-illustrated.pdf](https://pan.baidu.com/s/12W7r2WnH6rCpKdRVAxI3sA)  提取码: mmvj
+12. [keras图像深度学习实战.pdf](https://pan.baidu.com/s/1FCAdBRJvGUiceKO3q8oxdw)  提取码: nf7u)
+13. [DeepMind.ai.courses.pdf](https://pan.baidu.com/s/1a4zwQ_QZv4ZhRQM0tLpZuA)  提取码: n4md
+14. [深度有趣.pdf](https://pan.baidu.com/s/11dw9RaHcuLjdgcTbyCOtFw) 提取码: k6nd
+15. [《深度学习核心技术与实践》.pdf](https://pan.baidu.com/s/1JAxUPWVfGtKAIK-jW27sMg)  提取码: 8m2z
+16. [机器学习vs复杂系统..epub](https://pan.baidu.com/s/1xquOE8SwxP1f3-CzMkA8bg)  提取码: f2ap
+17. [深度学习之_TensorFlow_-_入门原理与进阶实战_-_李金洪](https://pan.baidu.com/s/1gOtlCrSFpbEjph3ZUJyU5Q)  提取码: dhzf
+18. [面向机器智能-TensorFlow实践.pdf](https://pan.baidu.com/s/1i8y9QX-Ing-X3sIJoqllBg)  提取码: 5dxr
+19. [计算机视觉复习笔记.pdf](https://pan.baidu.com/s/1t2-5ZEMtoCsScnR8Bl_J3w)  提取码: 1r3a
+20. [解析深度学习_语音识别实践.pdf](https://pan.baidu.com/s/1z5oMQjrgjErvxIBdrzFjDw)  提取码: tbtx
+21. [机器学习导论.pdf](https://pan.baidu.com/s/1mKqxBWw2AH3HA6E1N2v9wQ)  提取码: 3atm
+22. [深度学习.epub](https://pan.baidu.com/s/1a1WKODmW_uAvoGHCgrUxiQ)  提取码: i3gx
+23. [深度学习入门  基于Python的理论与实现 日-斋藤康毅.epub](https://pan.baidu.com/s/1MgmliMeHvaTaYm7-P0zHdA)  提取码: 29yj
+24. [《深度学习 Keras快速开发入门》.pdf](https://pan.baidu.com/s/1_67_5Wn9sS7d1FxMAlyoTA)  提取码: cng8
+25. [白话深度学习与_TensorFlow_-_高扬.epub](https://pan.baidu.com/s/1Hi_ZpYYYCtw415Yf99eUAw)  提取码: n194
+26. [动手学深度学习.pdf](https://pan.baidu.com/s/1GJgUn0qjS22-kNIQr2_TQw)  提取码: vekc
 
 ### 版本控制
 
