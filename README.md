@@ -1,5 +1,3 @@
-[TOC]
-
 # BooksKeeper
 
 > 对各类图书资源的收集，所有资源提供百度云地址和提取码。
@@ -101,3 +99,8 @@
 
 1. [人生护城河](https://pan.baidu.com/s/1pp_11HXRt7ZYWZQqBIWxfw) 提取码: dtcg
 2. [哈佛百年经典套装共38卷](https://pan.baidu.com/s/1XUVIv40zDGHzmYmucZ0VdA) 提取码: xkc3
+
+## 文学
+
+1. [好看的皮囊千篇一律](https://pan.baidu.com/s/1qc5WXIgtWlTw5MpdKrmcxg) 提取码: myxm
+2. [冰与火之歌1-4](https://pan.baidu.com/s/1fW8F4Xd39RvFCiC3qH75ww) 提取码: phap
