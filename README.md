@@ -15,6 +15,9 @@
 ### Python
 
 1. [Python数据科学](https://pan.baidu.com/s/1-o1LmANZziyFdpgdtQN8ww) 提取码: abh9
+2. [Python科学计算-第2版](https://pan.baidu.com/s/10DYxJ_rUmSqrRYeFUOcp-Q) 提取码: vp3s)
+3. [Python金融大数据分析.pdf](链接: https://pan.baidu.com/s/1HUyD-_tnB3jTjM2y3iXJpQ) 提取码: dus5)
+4. [](https://pan.baidu.com/s/16DCbfWhin_s9YIQtmfFxBg)提取码: dpwq)
 
 ### 人工智能
 
