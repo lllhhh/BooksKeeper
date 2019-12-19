@@ -16,6 +16,8 @@
 ### 数据结构与算法
 
 1. [大话数据结构](https://pan.baidu.com/s/1VKYAVYqGwxvEPfeEwSX-6A) 提取码: 3bmm
+2. [数据结构](https://pan.baidu.com/s/1zOFovb2HnK_rgYw_B-eTBg) 提取码: 9e8v
+3. [数据结构与算法分析C语言描述_原书第2版_高清版.pdf](https://pan.baidu.com/s/1tfQi4aYw4foxMFDoDkdAIA) 提取码: jexp
 
 ### iOS
 
