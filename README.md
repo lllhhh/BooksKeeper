@@ -45,6 +45,23 @@
 1. [从点子到产品](https://pan.baidu.com/s/1vQEyBl0UCpF6cDbOuP83lg) 提取码: yttr
 2. [滑动解锁  [美] 帕斯·底特律](https://pan.baidu.com/s/18-9A4IZFectgJ3XYFUuMuA) 提取码: uh9u
 
+## 商业
+
+1. [中国优秀企业的成功逻辑汇集最优秀的中国公司案例探寻华为万科腾讯京东海尔成功背后的秘密](https://pan.baidu.com/s/1NTZWBfQpLd06DB_7yyvGMg) 提取码: vedn
+2. [互联网系列互联网传统企业_互联网在踢门_颠覆金融_互联网思维_移动互联网时代套装共5册](https://pan.baidu.com/s/1Gx27GVhfx70QNn1way4zpw) 提取码: qq19
+3. [尽在双11_-_阿里巴巴技术演进与超越](https://pan.baidu.com/s/13WFv5YCFTwkIQz_nMiKbSA) 提取码: zni8
+4. [支付战争互联网金融创世纪](https://pan.baidu.com/s/10fJPPBwGp65sdTDXibJ4kQ) 提取码: h4fb
+5. [互联网_医疗重构医疗生态_-_李未柠__王晶__互联网医疗中国会](https://pan.baidu.com/s/1RZbGI8b6-RkM1EDV7CydLA) 提取码: t7p7
+6. [自商业未来网络经济新形态揭开移动互联网时代新商业的秘密-杨健](https://pan.baidu.com/s/1L1QDhloWV1wpnTjfsCTY3Q) 提取码: np15
+7. [《颠覆式创新：移动互联网时代的生存法则》李善友](https://pan.baidu.com/s/1NjKylpy03hQPzvAWzM3gUA) 提取码: 6rfc
+8. [无人驾驶](https://pan.baidu.com/s/1vjBfZvLAYd2GWsKZOxZK-g) 提取码: qzdr
+9. [腾讯传__腾讯战略法__腾讯管理法__腾讯工作法__腾讯产品法__腾讯公关法](https://pan.baidu.com/s/1lo2MMcWjV0HlEn67mdM8KA) 提取码: 8r7j
+10. [奔腾年代](https://pan.baidu.com/s/12JBO5jo2J0azu7LlOIXvHA) 提取码: m4gn
+11. [硅谷革命成就苹果公司的疯狂往事](https://pan.baidu.com/s/1RAhz0OU4_jzgS1bjOcXbKQ) 提取码: rpgw
+12. [互联网_小米案例版](https://pan.baidu.com/s/1_8AIcQ_tiO0mQ03LluWT3w) 提取码: 2kkx
+13. [掌控](https://pan.baidu.com/s/1u3FmoXadfZKI3XlHD8rGmQ) 提取码: rmq5
+14. [产业风口跨界与融合IT到DT_阿里研究院](https://pan.baidu.com/s/1Kw2jZi79OR7W9YoC7ANipg) 提取码: 3gpx
+
 ## 经济
 
 ### 股票
