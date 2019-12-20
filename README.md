@@ -88,6 +88,7 @@
 13. [游戏人工智能编程案例精粹.pdf](https://pan.baidu.com/s/1jRje8lTSBizhjHJL-MOIbw) 提取码: gkbs
 14. [百面机器学习_算法工程师带你去面试.epub](https://pan.baidu.com/s/1dIP0cyp9nKD9TqlVph4Oxg) 提取码: xvej
 15. [集体智慧编程-python算法应用.pdf](https://pan.baidu.com/s/1MLUEwmjVmor-wBZMDy0IOw) 提取码: nimk
+16. [人工智能基础高中版.pdf](https://pan.baidu.com/s/1fXWDCHTyM054qLQJleO2Eg) 提取码: k94f
 
 #### 深度学习
 
