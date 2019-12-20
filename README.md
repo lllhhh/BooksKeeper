@@ -73,20 +73,21 @@
 
 #### 机器学习
 
-1. [机器学习之路](https://pan.baidu.com/s/1luC6ulOQHsSeBxlKKY5kBQ) 提取码: yid7
-2. [《scikit-learn机器学习：常用算法原理及编程实战》_黄永昌.pdf](https://pan.baidu.com/s/1ghcewkE8jqEOsHxlJrDMLQ) 提取码: zy1t)
-3. [机器学习_周志华.pdf](https://pan.baidu.com/s/1Lh2-f-jJtK2NpMUFHxzYsQ)  提取码: 2tsi
-4. [机器学习实战.2013_-_美Peter_Harrington.pdf](https://pan.baidu.com/s/1n7a1KF2dFHdzIATysFKZSw)  提取码: xaje
-5. [机器学习基础.pdf](https://pan.baidu.com/s/19Fv1xDokjGQ6gKzXnM8f4Q) 提取码: ra4h
-6. [深入理解机器学习 从原理到算法. 北京：机械工业出版社, 2016.07.pdf](https://pan.baidu.com/s/1EHX1E0nN-Ppoy0SOkdcYYA) 提取码: caff
-7. [深度学习](https://pan.baidu.com/s/1pcWZZCp-FMOpGRCSFyFz5Q) 提取码: 8wb1
-8. [PYTHON自然语言处理中文翻译_NLTK_Natural_Language_Processing_with_Python.pdf](https://pan.baidu.com/s/1dl5sMgv1t4pfIDn78p9jLQ) 提取码: akre
-9. [Hands-On_Machine_Learning_with_Scikit-Learn_and_TensorFlowApacheCN中文.epub](https://pan.baidu.com/s/1zowtElD2LXjH5_EPjTindQ) 提取码: k6at)
-10. [机器学习从认知到实践第2辑套装共3册Python_TensorFlow异步图书.epub](https://pan.baidu.com/s/1is8fTkybT4mqnjuHS4qQ7Q) 提取码: 8ypq
-11. [Python机器学习28数据科学与工程技术丛书.epub](https://pan.baidu.com/s/1nNT_lYBf4nS4WdX6yiNHGw) 提取码: er1x
-12. [游戏人工智能编程案例精粹.pdf](https://pan.baidu.com/s/1jRje8lTSBizhjHJL-MOIbw) 提取码: gkbs
-13. [百面机器学习_算法工程师带你去面试.epub](https://pan.baidu.com/s/1dIP0cyp9nKD9TqlVph4Oxg) 提取码: xvej
-14. [集体智慧编程-python算法应用.pdf](https://pan.baidu.com/s/1MLUEwmjVmor-wBZMDy0IOw) 提取码: nimk
+1. [《机器学习实战：基于Scikit-Learn、Keras和TensorFlow》第二版.pdf](https://pan.baidu.com/s/1g3EQO5evKMmvPnEQxCfwaA) 提取码: wq5y
+2. [机器学习之路](https://pan.baidu.com/s/1luC6ulOQHsSeBxlKKY5kBQ) 提取码: yid7
+3. [《scikit-learn机器学习：常用算法原理及编程实战》_黄永昌.pdf](https://pan.baidu.com/s/1ghcewkE8jqEOsHxlJrDMLQ) 提取码: zy1t)
+4. [机器学习_周志华.pdf](https://pan.baidu.com/s/1Lh2-f-jJtK2NpMUFHxzYsQ)  提取码: 2tsi
+5. [机器学习实战.2013_-_美Peter_Harrington.pdf](https://pan.baidu.com/s/1n7a1KF2dFHdzIATysFKZSw)  提取码: xaje
+6. [机器学习基础.pdf](https://pan.baidu.com/s/19Fv1xDokjGQ6gKzXnM8f4Q) 提取码: ra4h
+7. [深入理解机器学习 从原理到算法. 北京：机械工业出版社, 2016.07.pdf](https://pan.baidu.com/s/1EHX1E0nN-Ppoy0SOkdcYYA) 提取码: caff
+8. [深度学习](https://pan.baidu.com/s/1pcWZZCp-FMOpGRCSFyFz5Q) 提取码: 8wb1
+9. [PYTHON自然语言处理中文翻译_NLTK_Natural_Language_Processing_with_Python.pdf](https://pan.baidu.com/s/1dl5sMgv1t4pfIDn78p9jLQ) 提取码: akre
+10. [Hands-On_Machine_Learning_with_Scikit-Learn_and_TensorFlowApacheCN中文.epub](https://pan.baidu.com/s/1zowtElD2LXjH5_EPjTindQ) 提取码: k6at)
+11. [机器学习从认知到实践第2辑套装共3册Python_TensorFlow异步图书.epub](https://pan.baidu.com/s/1is8fTkybT4mqnjuHS4qQ7Q) 提取码: 8ypq
+12. [Python机器学习28数据科学与工程技术丛书.epub](https://pan.baidu.com/s/1nNT_lYBf4nS4WdX6yiNHGw) 提取码: er1x
+13. [游戏人工智能编程案例精粹.pdf](https://pan.baidu.com/s/1jRje8lTSBizhjHJL-MOIbw) 提取码: gkbs
+14. [百面机器学习_算法工程师带你去面试.epub](https://pan.baidu.com/s/1dIP0cyp9nKD9TqlVph4Oxg) 提取码: xvej
+15. [集体智慧编程-python算法应用.pdf](https://pan.baidu.com/s/1MLUEwmjVmor-wBZMDy0IOw) 提取码: nimk
 
 #### 深度学习
 
