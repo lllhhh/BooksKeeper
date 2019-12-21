@@ -16,6 +16,7 @@
     - [架构](#%e6%9e%b6%e6%9e%84)
   - [互联网](#%e4%ba%92%e8%81%94%e7%bd%91)
     - [产品](#%e4%ba%a7%e5%93%81)
+    - [运营](#%e8%bf%90%e8%90%a5)
   - [商业](#%e5%95%86%e4%b8%9a)
   - [经济](#%e7%bb%8f%e6%b5%8e)
     - [股票](#%e8%82%a1%e7%a5%a8)
@@ -133,6 +134,10 @@
 
 1. [从点子到产品](https://pan.baidu.com/s/1vQEyBl0UCpF6cDbOuP83lg) 提取码: yttr
 2. [滑动解锁  [美] 帕斯·底特律](https://pan.baidu.com/s/18-9A4IZFectgJ3XYFUuMuA) 提取码: uh9u
+
+### 运营
+
+1. [美团点评平台酒店商家运营攻略_陈亮.epub](https://pan.baidu.com/s/1RHMK9jLAKzygxc4vG5ozVA) 提取码: i5tr
 
 ## 商业
 
