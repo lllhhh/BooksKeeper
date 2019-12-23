@@ -119,6 +119,7 @@
 24. [《深度学习 Keras快速开发入门》.pdf](https://pan.baidu.com/s/1_67_5Wn9sS7d1FxMAlyoTA)  提取码: cng8
 25. [白话深度学习与_TensorFlow_-_高扬.epub](https://pan.baidu.com/s/1Hi_ZpYYYCtw415Yf99eUAw)  提取码: n194
 26. [动手学深度学习.pdf](https://pan.baidu.com/s/1GJgUn0qjS22-kNIQr2_TQw)  提取码: vekc
+27. [[图灵程序设计丛书].Hadoop深度学习.pdf](https://pan.baidu.com/s/1c-3wmUz-TUCByXReyIXaSg) 提取码: nv53
 
 ### 版本控制
 
