@@ -25,6 +25,7 @@
     - [金融](#%e9%87%91%e8%9e%8d)
   - [教育](#%e6%95%99%e8%82%b2)
   - [文学](#%e6%96%87%e5%ad%a6)
+  - [科普](#%e7%a7%91%e6%99%ae)
 
 ## 计算机
 
@@ -203,3 +204,6 @@
 1. [好看的皮囊千篇一律](https://pan.baidu.com/s/1qc5WXIgtWlTw5MpdKrmcxg) 提取码: myxm
 2. [冰与火之歌1-4](https://pan.baidu.com/s/1fW8F4Xd39RvFCiC3qH75ww) 提取码: phap
 3. [保持饥渴.epub](https://pan.baidu.com/s/1T8KuCAbtHq8xlietQ3w86g) 提取码: bk7b
+
+## 科普
+1. [农业与工业化 - 张培刚.pdf](https://pan.baidu.com/s/1f8JlTGLGsbw29pLkP5Q0HA) 提取码: cvb1
