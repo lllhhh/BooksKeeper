@@ -72,6 +72,7 @@
 5. [三体](https://pan.baidu.com/s/1PlTK1MHxm1KlTD_AK_A0Yw) 提取码: 9f7f
 6. [生命3.0](https://pan.baidu.com/s/1k4QOkJjSbXQ6vx8K6kRkkQ) 提取码: 627y
 7. [玫瑰战争简史](https://pan.baidu.com/s/1cf2pz1lkIeDlO6lFKrjTLQ) 提取码: h75d
+8. [终极复制：人工智能将如何推动社会巨变.epub](https://pan.baidu.com/s/1R7xHTtX7oGSuxCgPR1vapQ) 提取码: xp3c
 
 #### 机器学习
 
@@ -92,7 +93,7 @@
 15. [集体智慧编程-python算法应用.pdf](https://pan.baidu.com/s/1MLUEwmjVmor-wBZMDy0IOw) 提取码: nimk
 16. [人工智能基础高中版.pdf](https://pan.baidu.com/s/1fXWDCHTyM054qLQJleO2Eg) 提取码: k94f
 17. [《分布式机器学习：算法、理论与实践》.pdf](https://pan.baidu.com/s/1D5pMSGpXZDy8QYNh4LGnPA) 提取码: z9gh
-18. [:NLTK基础教程：用NLTK和Python库构建机器学习应用.pdf](https://pan.baidu.com/s/1JaLj48rxK-Wnl7uanbxWGA) 提取码: xkkc
+18. [NLTK基础教程：用NLTK和Python库构建机器学习应用.pdf](https://pan.baidu.com/s/1JaLj48rxK-Wnl7uanbxWGA) 提取码: xkkc
 
 #### 深度学习
 
