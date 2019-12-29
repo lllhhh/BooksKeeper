@@ -208,6 +208,7 @@
 1. [好看的皮囊千篇一律](https://pan.baidu.com/s/1qc5WXIgtWlTw5MpdKrmcxg) 提取码: myxm
 2. [冰与火之歌1-4](https://pan.baidu.com/s/1fW8F4Xd39RvFCiC3qH75ww) 提取码: phap
 3. [保持饥渴.epub](https://pan.baidu.com/s/1T8KuCAbtHq8xlietQ3w86g) 提取码: bk7b
+4. [狗心.米·布尔加科夫.epub](链接: https://pan.baidu.com/s/1GWxuYHbCSeb3Ich_GS8b0A) 提取码: rpxb
 
 ## 科普
 
