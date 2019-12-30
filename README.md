@@ -25,6 +25,7 @@
     - [金融](#%e9%87%91%e8%9e%8d)
   - [教育](#%e6%95%99%e8%82%b2)
   - [文学](#%e6%96%87%e5%ad%a6)
+  - [历史](#%e5%8e%86%e5%8f%b2)
   - [科普](#%e7%a7%91%e6%99%ae)
 
 ## 计算机
@@ -209,6 +210,10 @@
 2. [冰与火之歌1-4](https://pan.baidu.com/s/1fW8F4Xd39RvFCiC3qH75ww) 提取码: phap
 3. [保持饥渴.epub](https://pan.baidu.com/s/1T8KuCAbtHq8xlietQ3w86g) 提取码: bk7b
 4. [狗心.米·布尔加科夫.epub](链接: https://pan.baidu.com/s/1GWxuYHbCSeb3Ich_GS8b0A) 提取码: rpxb
+
+## 历史
+
+1. [战后欧洲史（套装共4册）.[美]托尼·朱特.epub](https://pan.baidu.com/s/1ySCEIcfLHsRMzEt58Oog1w) 提取码: ifpc
 
 ## 科普
 
