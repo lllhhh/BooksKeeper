@@ -180,6 +180,7 @@
 3. [量化投资：策略与技术](https://pan.baidu.com/s/1LOpykf87YyIKOmPq-On6ng) 提取码: bmbk
 4. [通向财务自由之路](https://pan.baidu.com/s/1_avVPDNQrwBFLxCZ1bs3dA) 提取码: ntms
 5. [投资理财股票基金套装看盘方法与技巧](https://pan.baidu.com/s/1wDhqIN5TZhUMPIfzLZZZkQ) 提取码: vb5m
+6. [富爸爸31本合集.zip](https://pan.baidu.com/s/1J1hqZVfTCJcYYEeWLGZ4YQ) 提取码: 3fey
 
 ### 经济概论
 
