@@ -74,6 +74,7 @@
 6. [生命3.0](https://pan.baidu.com/s/1k4QOkJjSbXQ6vx8K6kRkkQ) 提取码: 627y
 7. [玫瑰战争简史](https://pan.baidu.com/s/1cf2pz1lkIeDlO6lFKrjTLQ) 提取码: h75d
 8. [终极复制：人工智能将如何推动社会巨变.epub](https://pan.baidu.com/s/1R7xHTtX7oGSuxCgPR1vapQ) 提取码: xp3c
+9. [无界：人工智能时代的认知升级.epub](https://pan.baidu.com/s/1CWlub8N3YLOFuA22IpjCQg) 提取码: u8nj
 
 #### 机器学习
 
