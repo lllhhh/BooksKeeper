@@ -75,6 +75,7 @@
 7. [玫瑰战争简史](https://pan.baidu.com/s/1cf2pz1lkIeDlO6lFKrjTLQ) 提取码: h75d
 8. [终极复制：人工智能将如何推动社会巨变.epub](https://pan.baidu.com/s/1R7xHTtX7oGSuxCgPR1vapQ) 提取码: xp3c
 9. [无界：人工智能时代的认知升级.epub](https://pan.baidu.com/s/1CWlub8N3YLOFuA22IpjCQg) 提取码: u8nj
+10. [《人工智能哲学》[英]玛格丽特·博登编著 (上海译文出版社 2001).pdf](https://pan.baidu.com/s/1tTgTpeRXje6tewgR8uXvlA) 提取码: 3366
 
 #### 机器学习
 
