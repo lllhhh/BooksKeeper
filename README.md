@@ -208,6 +208,7 @@
 
 1. [人生护城河](https://pan.baidu.com/s/1pp_11HXRt7ZYWZQqBIWxfw) 提取码: dtcg
 2. [哈佛百年经典套装共38卷](https://pan.baidu.com/s/1XUVIv40zDGHzmYmucZ0VdA) 提取码: xkc3
+3. [好好思考：如何通过转换思维达到人生理想状态.[美] 奥里森·马登（Orison Marden）.pdf](https://pan.baidu.com/s/1QyIsGVdrvxGoaDZPMA_0RQ) 提取码: ytex
 
 ## 文学
 
