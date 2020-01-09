@@ -78,6 +78,7 @@
 10. [《人工智能哲学》[英]玛格丽特·博登编著 (上海译文出版社 2001).pdf](https://pan.baidu.com/s/1tTgTpeRXje6tewgR8uXvlA) 提取码: 3366
 11. [心智社会：从细胞到人工智能，人类思维的优雅解读.epub](https://pan.baidu.com/s/1epeEbBPrLmdniW15W6rFHQ) 提取码: c2ym
 12. [科学的极致：漫谈人工智能.epub](https://pan.baidu.com/s/1hzuoAro-FOLoH7UWucbYrA) 提取码: gevf
+13. [人工智能的未来.epub](https://pan.baidu.com/s/1XluEqAGgxV3v4839U0zBfQ) 提取码: 1cap
 
 #### 机器学习
 
