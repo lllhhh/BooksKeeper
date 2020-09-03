@@ -130,6 +130,9 @@
 25. [白话深度学习与_TensorFlow_-_高扬.epub](https://pan.baidu.com/s/1Hi_ZpYYYCtw415Yf99eUAw)  提取码: n194
 26. [动手学深度学习.pdf](https://pan.baidu.com/s/1GJgUn0qjS22-kNIQr2_TQw)  提取码: vekc
 27. [[图灵程序设计丛书].Hadoop深度学习.pdf](https://pan.baidu.com/s/1c-3wmUz-TUCByXReyIXaSg) 提取码: nv53
+28. [《神经网络与深度学习》书籍.pdf](https://pan.baidu.com/s/1gqTsXc53Rv0elR0lmKOayA) 提取码: yn4y
+29. [Think Python 2e 中译版.pdf](https://pan.baidu.com/s/1C9sqvswO3pMSLUp8W5r3vg) 提取码: nx6y
+30. [Deep-Learning-with-PyTorch.pdf](https://pan.baidu.com/s/11PJKpdrVTiQqp_kIbazPSg) 提取码: j3gn
 
 ### 版本控制
 
