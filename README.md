@@ -190,6 +190,7 @@
 5. [投资理财股票基金套装看盘方法与技巧](https://pan.baidu.com/s/1wDhqIN5TZhUMPIfzLZZZkQ) 提取码: vb5m
 6. [富爸爸31本合集.zip](https://pan.baidu.com/s/1J1hqZVfTCJcYYEeWLGZ4YQ) 提取码: 3fey
 7. [富爸爸系列全集（套装共32册）.epub](https://pan.baidu.com/s/17ToaKk6b27mDWw3slObFfg) 提取码: gsay
+8. [原则.epub](https://pan.baidu.com/s/1eyi_I1Ff9apKrLIIkiK1BA) 提取码: 6phr
 
 ### 经济概论
 
