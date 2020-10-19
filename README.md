@@ -133,6 +133,7 @@
 28. [《神经网络与深度学习》书籍.pdf](https://pan.baidu.com/s/1gqTsXc53Rv0elR0lmKOayA) 提取码: yn4y
 29. [Think Python 2e 中译版.pdf](https://pan.baidu.com/s/1C9sqvswO3pMSLUp8W5r3vg) 提取码: nx6y
 30. [Deep-Learning-with-PyTorch.pdf](https://pan.baidu.com/s/11PJKpdrVTiQqp_kIbazPSg) 提取码: j3gn
+31. [《深度学习实践计算机视觉》_缪鹏.pdf](https://pan.baidu.com/s/1yebVfcGkqC_ebYXVezgWyQ) 提取码: 8qj5
 
 ### 版本控制
 
