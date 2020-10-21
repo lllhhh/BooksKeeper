@@ -183,6 +183,7 @@
 3. [缠中说禅_教你炒股票_理财学院_缠论系列_-_培峰](https://pan.baidu.com/s/1pS5bqMjc1VFmV_Fa7wwY2g) 提取码: tbbk
 4. [股票大作手回忆录](https://pan.baidu.com/s/1XI3zV4Zt3cwX2OTrGyXmcw) 提取码: 2kid
 5. [笑傲股市原书第4版](https://pan.baidu.com/s/1GvHhEVkRkn2FX2vJ48GCRg) 提取码: 87yj
+6. [巴菲特的护城河.epub](https://pan.baidu.com/s/1zwmXDHLJrlE6f4Ku1hrQ5A) 提取码: 5vsi
 
 ### 理财
 
