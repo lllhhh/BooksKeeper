@@ -29,7 +29,6 @@
   - [科普](#科普)
   - [格局与思维](#格局与思维)
 
-
 ## 计算机
 
 ### 计算机基础
@@ -226,6 +225,7 @@
 2. [冰与火之歌1-4](https://pan.baidu.com/s/1fW8F4Xd39RvFCiC3qH75ww) 提取码: phap
 3. [保持饥渴.epub](https://pan.baidu.com/s/1T8KuCAbtHq8xlietQ3w86g) 提取码: bk7b
 4. [狗心.米·布尔加科夫.epub](链接: https://pan.baidu.com/s/1GWxuYHbCSeb3Ich_GS8b0A) 提取码: rpxb
+5. [夜行船.epub](https://pan.baidu.com/s/1pZSXxLh7M2fhgLmkI0r0jw) 提取码: vf3i
 
 ## 历史
 
