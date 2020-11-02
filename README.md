@@ -206,6 +206,7 @@
 6. [债券投资策略原书第2版_CFA协会金融前沿译丛_-_美克里森兹](https://pan.baidu.com/s/1WZeWb-HTR0o-in6HpQ3qyg) 提取码: 6au5
 7. [经济学了没](https://pan.baidu.com/s/11rerN1bj_W9c-N7RwPW8wA) 提取码: 22y9
 8. [私募股权投资实务与案例（第二版11）-潘启龙](https://pan.baidu.com/s/1q9O3MUGb3bWlbK0zCsvz1g) 提取码: 3u6d
+9. [中国经济2020.pdf](https://pan.baidu.com/s/1iqiQ0jV92JcJEoM_RPueKg) 提取码: mht2
 
 ### 金融
 
