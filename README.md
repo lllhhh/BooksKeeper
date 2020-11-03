@@ -184,6 +184,7 @@
 5. [笑傲股市原书第4版](https://pan.baidu.com/s/1GvHhEVkRkn2FX2vJ48GCRg) 提取码: 87yj
 6. [巴菲特的护城河.epub](https://pan.baidu.com/s/1zwmXDHLJrlE6f4Ku1hrQ5A) 提取码: 5vsi
 7. [股市趋势技术分析.epub](https://pan.baidu.com/s/1CjWMkiQxuamVRYgP08xgXQ) 提取码: u7dy
+8. [证券分析.epub](https://pan.baidu.com/s/1sBBHuCDVcwV4j6Hum1hyXQ) 提取码: 5u9q 
 
 ### 理财
 
