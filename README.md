@@ -240,3 +240,4 @@
 
 ## 格局与思维
 1. [深度思维：透过复杂直抵本质的跨越式成长方法论 by 叶修 .epub](https://pan.baidu.com/s/1Iol3tDQmgvoWND_TM8qo-g) 提取码: cyxn
+2. [如何阅读一本书.epub](https://pan.baidu.com/s/1wHYu-J0iM98ZwSNoFzCkdg) 提取码: zfss
