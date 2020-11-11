@@ -136,6 +136,7 @@
 30. [Deep-Learning-with-PyTorch.pdf](https://pan.baidu.com/s/11PJKpdrVTiQqp_kIbazPSg) 提取码: j3gn
 31. [《深度学习实践计算机视觉》_缪鹏.pdf](https://pan.baidu.com/s/1yebVfcGkqC_ebYXVezgWyQ) 提取码: 8qj5
 32. [TensorFlow2.0 深度学习应用编程快速入门.epub](https://pan.baidu.com/s/1V2SegF9sYeq7-F0B4iEtjQ) 提取码: hwek
+33. [PyTorch实战计算机视觉.pdf](https://pan.baidu.com/s/1DGlxyHZHHyRgHBmUw7az3Q) 提取码: uuh6
 
 ### 版本控制
 
