@@ -7,6 +7,7 @@
     - [计算机基础](#计算机基础)
     - [数据结构与算法](#数据结构与算法)
     - [iOS](#ios)
+    - [Flutter](#flutter)
     - [Python](#python)
     - [人工智能](#人工智能)
       - [概述](#概述)
@@ -53,6 +54,9 @@
 3. [UTF-8_RxSwift_Reactive_Programming_with_Swift_v2.0.epub](https://pan.baidu.com/s/1AfME-DI-5dZTc9CXyP9Z8Q) 提取码: w4kj
 4. [高性能_iOS_应用开发_-_Gaurav_Vaish.epub](https://pan.baidu.com/s/1wpIa-6Pww11a5GL5HBXM4w) 提取码: knka
 5. [app_架构.pdf](https://pan.baidu.com/s/1k15wQUFmpLDj5sWRCdyfdg) 提取码: 7xuk
+
+### Flutter
+1. [Flutter in action 咸鱼最佳实践.pdf](https://pan.baidu.com/s/1o7OAn8RimktHC_LUcPh4-Q) 提取码: ef9b
 
 ### Python
 
