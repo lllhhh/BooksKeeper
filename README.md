@@ -221,6 +221,7 @@
 2. [搞懂金融的第一本书](https://pan.baidu.com/s/1UuDeBAr3H28GAw-dCbpjBQ) 提取码: w73e
 3. [一看就懂的金融常识全图解去梯言系列](https://pan.baidu.com/s/1Os0ovStwhj4hdbY_IumCQA) 提取码: 37ui
 4. [摩根财团美国一代银行王朝和现代金融业的崛起](https://pan.baidu.com/s/1r9BEl_8qBYYkpOub3hZxiw) 提取码: 2ikz
+5. [大败局.epub](https://pan.baidu.com/s/1IHuLpX8DZeR6jT36iM1zQg) 提取码: 3q39
 
 ## 教育
 
