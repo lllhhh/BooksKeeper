@@ -56,6 +56,7 @@
 5. [app_架构.pdf](https://pan.baidu.com/s/1k15wQUFmpLDj5sWRCdyfdg) 提取码: 7xuk
 
 ### Flutter
+
 1. [Flutter in action 咸鱼最佳实践.pdf](https://pan.baidu.com/s/1o7OAn8RimktHC_LUcPh4-Q) 提取码: ef9b
 
 ### Python
@@ -234,8 +235,9 @@
 1. [好看的皮囊千篇一律](https://pan.baidu.com/s/1qc5WXIgtWlTw5MpdKrmcxg) 提取码: myxm
 2. [冰与火之歌1-4](https://pan.baidu.com/s/1fW8F4Xd39RvFCiC3qH75ww) 提取码: phap
 3. [保持饥渴.epub](https://pan.baidu.com/s/1T8KuCAbtHq8xlietQ3w86g) 提取码: bk7b
-4. [狗心.米·布尔加科夫.epub](链接: https://pan.baidu.com/s/1GWxuYHbCSeb3Ich_GS8b0A) 提取码: rpxb
+4. [狗心.米·布尔加科夫.epub](https://pan.baidu.com/s/1GWxuYHbCSeb3Ich_GS8b0A) 提取码: rpxb
 5. [夜行船.epub](https://pan.baidu.com/s/1pZSXxLh7M2fhgLmkI0r0jw) 提取码: vf3i
+6. [孙子兵法·鬼谷子·三十六计：一本书读懂兵书三绝.epub](https://pan.baidu.com/s/1dPUFDTePDCinxNKPEPgRuQ) 提取码: itty
 
 ## 历史
 
@@ -246,5 +248,6 @@
 1. [农业与工业化 - 张培刚.pdf](https://pan.baidu.com/s/1f8JlTGLGsbw29pLkP5Q0HA) 提取码: cvb1
 
 ## 格局与思维
+
 1. [深度思维：透过复杂直抵本质的跨越式成长方法论 by 叶修 .epub](https://pan.baidu.com/s/1Iol3tDQmgvoWND_TM8qo-g) 提取码: cyxn
 2. [如何阅读一本书.epub](https://pan.baidu.com/s/1wHYu-J0iM98ZwSNoFzCkdg) 提取码: zfss
