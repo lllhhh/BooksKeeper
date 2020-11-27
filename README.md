@@ -106,6 +106,7 @@
 16. [人工智能基础高中版.pdf](https://pan.baidu.com/s/1fXWDCHTyM054qLQJleO2Eg) 提取码: k94f
 17. [《分布式机器学习：算法、理论与实践》.pdf](https://pan.baidu.com/s/1D5pMSGpXZDy8QYNh4LGnPA) 提取码: z9gh
 18. [NLTK基础教程：用NLTK和Python库构建机器学习应用.pdf](https://pan.baidu.com/s/1JaLj48rxK-Wnl7uanbxWGA) 提取码: xkkc
+19. [计算机视觉-算法与应用(中文版).pdf](https://pan.baidu.com/s/1cJSyWXsy6oOGicm76wZTXg) 提取码: 4nfd
 
 #### 深度学习
 
