@@ -21,8 +21,8 @@
   - [商业](#商业)
   - [经济](#经济)
     - [股票](#股票)
-    - [理财](#理财)
-    - [经济概论](#经济概论)
+    - [投资理财](#投资理财)
+    - [经济](#经济-1)
     - [金融](#金融)
   - [教育](#教育)
   - [文学](#文学)
@@ -196,7 +196,7 @@
 9. [长赢投资之道 （美）约翰·博格.pdf](https://pan.baidu.com/s/11-c3pv98BtO1Y0KgEqAoNw) 提取码: hmem
 10. [穷查理宝典.epub](https://pan.baidu.com/s/1gBEe23WuNKGhm62NbxbVag) 提取码: a2wp
 
-### 理财
+### 投资理财
 
 1. [半小时漫画理财课](https://pan.baidu.com/s/1-O0pzYl0ec1F73q7FvLoDg) 提取码: dv59
 2. [量化投资策略](https://pan.baidu.com/s/15hIhB98LYEgrf4eKMS-pww) 提取码: kqta
@@ -206,8 +206,9 @@
 6. [富爸爸31本合集.zip](https://pan.baidu.com/s/1J1hqZVfTCJcYYEeWLGZ4YQ) 提取码: 3fey
 7. [富爸爸系列全集（套装共32册）.epub](https://pan.baidu.com/s/17ToaKk6b27mDWw3slObFfg) 提取码: gsay
 8. [原则.epub](https://pan.baidu.com/s/1eyi_I1Ff9apKrLIIkiK1BA) 提取码: 6phr
+9. [谁是中国城市领跑者.epub](https://pan.baidu.com/s/1x_Yy7j4CxpXd8yNC2eQP1w) 提取码: qd3u
 
-### 经济概论
+### 经济
 
 1. [行动的勇气金融危机及其余波回忆录](https://pan.baidu.com/s/1AQEsgiisBPXC6YpxY0ZosA) 提取码: sxtb
 2. [十年轮回从亚洲到全球金融危机第三版_-_马沈联涛](https://pan.baidu.com/s/17nF9FcMpUTqd_X0722cnqQ) 提取码: dvku
