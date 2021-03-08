@@ -243,6 +243,7 @@
 4. [狗心.米·布尔加科夫.epub](https://pan.baidu.com/s/1GWxuYHbCSeb3Ich_GS8b0A) 提取码: rpxb
 5. [夜行船.epub](https://pan.baidu.com/s/1pZSXxLh7M2fhgLmkI0r0jw) 提取码: vf3i
 6. [孙子兵法·鬼谷子·三十六计：一本书读懂兵书三绝.epub](https://pan.baidu.com/s/1dPUFDTePDCinxNKPEPgRuQ) 提取码: itty
+7. [瓦尔登湖.epub](https://pan.baidu.com/s/1HazmP6HmwsG3aAxrZ5UzXA) 提取码: iija
 
 ## 历史
 
