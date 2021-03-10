@@ -29,6 +29,8 @@
   - [历史](#历史)
   - [科普](#科普)
   - [格局与思维](#格局与思维)
+- [打造完整知识体系](#打造完整知识体系)
+  - [拓宽知识面](#拓宽知识面)
 
 ## 计算机
 
@@ -243,7 +245,6 @@
 4. [狗心.米·布尔加科夫.epub](https://pan.baidu.com/s/1GWxuYHbCSeb3Ich_GS8b0A) 提取码: rpxb
 5. [夜行船.epub](https://pan.baidu.com/s/1pZSXxLh7M2fhgLmkI0r0jw) 提取码: vf3i
 6. [孙子兵法·鬼谷子·三十六计：一本书读懂兵书三绝.epub](https://pan.baidu.com/s/1dPUFDTePDCinxNKPEPgRuQ) 提取码: itty
-7. [瓦尔登湖.epub](https://pan.baidu.com/s/1HazmP6HmwsG3aAxrZ5UzXA) 提取码: iija
 
 ## 历史
 
@@ -257,3 +258,8 @@
 
 1. [深度思维：透过复杂直抵本质的跨越式成长方法论 by 叶修 .epub](https://pan.baidu.com/s/1Iol3tDQmgvoWND_TM8qo-g) 提取码: cyxn
 2. [如何阅读一本书.epub](https://pan.baidu.com/s/1wHYu-J0iM98ZwSNoFzCkdg) 提取码: zfss
+
+# 打造完整知识体系
+## 拓宽知识面
+1. [瓦尔登湖.epub](https://pan.baidu.com/s/1HazmP6HmwsG3aAxrZ5UzXA) 提取码: iija
+2. [百年孤独.epub](https://pan.baidu.com/s/1ZN6hLDHTBPYh7QKN891p7w) 提取码: hisn
