@@ -265,3 +265,4 @@
 
 1. [百年孤独.upub](https://pan.baidu.com/s/1eeRsWJfrlX7tIJ5U_3NMSQ) 提取码: 6mre
 2. [瓦尔登湖.epub](https://pan.baidu.com/s/1HazmP6HmwsG3aAxrZ5UzXA) 提取码: iija
+3. [乡土中国（中英对照）.epub](https://pan.baidu.com/s/1KvJ-yw3hgbvOqBryN_Z6CA) 提取码: 2ssq
