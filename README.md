@@ -31,6 +31,7 @@
   - [格局与思维](#格局与思维)
 - [打造完整知识体系](#打造完整知识体系)
   - [拓宽知识面](#拓宽知识面)
+  - [把控事物规律，打破思维](#把控事物规律打破思维)
 
 ## 计算机
 
@@ -263,3 +264,6 @@
 ## 拓宽知识面
 1. [瓦尔登湖.epub](https://pan.baidu.com/s/1HazmP6HmwsG3aAxrZ5UzXA) 提取码: iija
 2. [百年孤独.epub](https://pan.baidu.com/s/1ZN6hLDHTBPYh7QKN891p7w) 提取码: hisn
+
+## 把控事物规律，打破思维
+1. [如何阅读一本书.epub](https://pan.baidu.com/s/1aIF_e1csnwA4lxZxZs7jCg) 提取码: xfbb
