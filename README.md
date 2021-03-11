@@ -261,9 +261,12 @@
 2. [如何阅读一本书.epub](https://pan.baidu.com/s/1wHYu-J0iM98ZwSNoFzCkdg) 提取码: zfss
 
 # 打造完整知识体系
+
 ## 拓宽知识面
-1. [瓦尔登湖.epub](https://pan.baidu.com/s/1HazmP6HmwsG3aAxrZ5UzXA) 提取码: iija
-2. [百年孤独.epub](https://pan.baidu.com/s/1ZN6hLDHTBPYh7QKN891p7w) 提取码: hisn
+
+1. [百年孤独.epub](https://pan.baidu.com/s/1eeRsWJfrlX7tIJ5U_3NMSQ) 提取码: 6mre
+2. [瓦尔登湖.epub](https://pan.baidu.com/s/1HazmP6HmwsG3aAxrZ5UzXA) 提取码: iija
+3. [乡土中国（中英对照）.epub](https://pan.baidu.com/s/1KvJ-yw3hgbvOqBryN_Z6CA) 提取码: 2ssq
 
 ## 把控事物规律，打破思维
 1. [如何阅读一本书.epub](https://pan.baidu.com/s/1aIF_e1csnwA4lxZxZs7jCg) 提取码: xfbb
