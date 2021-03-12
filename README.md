@@ -280,4 +280,4 @@
 1. [高效能人士的七个习惯.epub](https://pan.baidu.com/s/1CYo9J4HbH5eOgwTEaZyUAA) 提取码: jije
 
 ## 掌控未来生存之道
-1. [黑天鹅：如何应对不可知的未来]()
+1. [黑天鹅：如何应对不可知的未来](https://pan.baidu.com/s/1g2fgMhnqiK3au71faz7RLA) 提取码: q8em
