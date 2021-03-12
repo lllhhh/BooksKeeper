@@ -269,6 +269,7 @@
 1. [百年孤独.epub](https://pan.baidu.com/s/1eeRsWJfrlX7tIJ5U_3NMSQ) 提取码: 6mre
 2. [瓦尔登湖.epub](https://pan.baidu.com/s/1HazmP6HmwsG3aAxrZ5UzXA) 提取码: iija
 3. [乡土中国（中英对照）.epub](https://pan.baidu.com/s/1KvJ-yw3hgbvOqBryN_Z6CA) 提取码: 2ssq
+4. [人类简史+未来简史.epub](https://pan.baidu.com/s/1O2Veq41ElN1ZTKUQoVvuRg) 提取码: ng3z
 
 ## 把控事物规律，打破思维
 1. [如何阅读一本书.epub](https://pan.baidu.com/s/1aIF_e1csnwA4lxZxZs7jCg) 提取码: xfbb
@@ -280,4 +281,4 @@
 1. [高效能人士的七个习惯.epub](https://pan.baidu.com/s/1CYo9J4HbH5eOgwTEaZyUAA) 提取码: jije
 
 ## 掌控未来生存之道
-1. [黑天鹅：如何应对不可知的未来](https://pan.baidu.com/s/1g2fgMhnqiK3au71faz7RLA) 提取码: q8em
+1. [黑天鹅-反脆弱-随机生存.epub](https://pan.baidu.com/s/1g2fgMhnqiK3au71faz7RLA) 提取码: q8em
