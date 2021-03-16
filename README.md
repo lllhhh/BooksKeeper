@@ -22,19 +22,19 @@
   - [经济](#经济)
     - [股票](#股票)
     - [投资理财](#投资理财)
-    - [经济](#经济-1)
+    - [经济学](#经济学)
     - [金融](#金融)
   - [教育](#教育)
   - [文学](#文学)
   - [历史](#历史)
   - [科普](#科普)
   - [格局与思维](#格局与思维)
-- [打造完整知识体系](#打造完整知识体系)
-  - [拓宽知识面](#拓宽知识面)
-  - [把控事物规律，打破思维](#把控事物规律打破思维)
-  - [驾驭方法，实现财务自由](#驾驭方法实现财务自由)
-  - [搞定职场和生活](#搞定职场和生活)
-  - [掌控未来生存之道](#掌控未来生存之道)
+  - [打造完整知识体系](#打造完整知识体系)
+    - [拓宽知识面](#拓宽知识面)
+    - [把控事物规律，打破思维](#把控事物规律打破思维)
+    - [驾驭方法，实现财务自由](#驾驭方法实现财务自由)
+    - [搞定职场和生活](#搞定职场和生活)
+    - [掌控未来生存之道](#掌控未来生存之道)
 
 ## 计算机
 
@@ -214,7 +214,7 @@
 8. [原则.epub](https://pan.baidu.com/s/1eyi_I1Ff9apKrLIIkiK1BA) 提取码: 6phr
 9. [谁是中国城市领跑者.epub](https://pan.baidu.com/s/1x_Yy7j4CxpXd8yNC2eQP1w) 提取码: qd3u
 
-### 经济
+### 经济学
 
 1. [行动的勇气金融危机及其余波回忆录](https://pan.baidu.com/s/1AQEsgiisBPXC6YpxY0ZosA) 提取码: sxtb
 2. [十年轮回从亚洲到全球金融危机第三版_-_马沈联涛](https://pan.baidu.com/s/17nF9FcMpUTqd_X0722cnqQ) 提取码: dvku
@@ -262,23 +262,29 @@
 
 1. [深度思维：透过复杂直抵本质的跨越式成长方法论 by 叶修 .epub](https://pan.baidu.com/s/1Iol3tDQmgvoWND_TM8qo-g) 提取码: cyxn
 2. [如何阅读一本书.epub](https://pan.baidu.com/s/1wHYu-J0iM98ZwSNoFzCkdg) 提取码: zfss
+3. [简单冥想数.epub](https://pan.baidu.com/s/1iPEqETCunasjpf_jr8Usfg) 提取码: 3d62
 
-# 打造完整知识体系
+## 打造完整知识体系
 
-## 拓宽知识面
+### 拓宽知识面
+
 1. [百年孤独.epub](https://pan.baidu.com/s/1eeRsWJfrlX7tIJ5U_3NMSQ) 提取码: 6mre
 2. [瓦尔登湖.epub](https://pan.baidu.com/s/1HazmP6HmwsG3aAxrZ5UzXA) 提取码: iija
 3. [乡土中国（中英对照）.epub](https://pan.baidu.com/s/1KvJ-yw3hgbvOqBryN_Z6CA) 提取码: 2ssq
 4. [人类简史+未来简史.epub](https://pan.baidu.com/s/1O2Veq41ElN1ZTKUQoVvuRg) 提取码: ng3z
 
-## 把控事物规律，打破思维
+### 把控事物规律，打破思维
+
 1. [如何阅读一本书.epub](https://pan.baidu.com/s/1aIF_e1csnwA4lxZxZs7jCg) 提取码: xfbb
 
-## 驾驭方法，实现财务自由
+### 驾驭方法，实现财务自由
+
 1. [卓有成效的管理者.epub](https://pan.baidu.com/s/13hAr2IOHeQl29WpdHEQsWA) 提取码: ci9m
 
-## 搞定职场和生活
+### 搞定职场和生活
+
 1. [高效能人士的七个习惯.epub](https://pan.baidu.com/s/1CYo9J4HbH5eOgwTEaZyUAA) 提取码: jije
 
-## 掌控未来生存之道
+### 掌控未来生存之道
+
 1. [黑天鹅-反脆弱-随机生存.epub](https://pan.baidu.com/s/1g2fgMhnqiK3au71faz7RLA) 提取码: q8em
