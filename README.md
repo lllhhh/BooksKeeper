@@ -262,7 +262,7 @@
 
 1. [深度思维：透过复杂直抵本质的跨越式成长方法论 by 叶修 .epub](https://pan.baidu.com/s/1Iol3tDQmgvoWND_TM8qo-g) 提取码: cyxn
 2. [如何阅读一本书.epub](https://pan.baidu.com/s/1wHYu-J0iM98ZwSNoFzCkdg) 提取码: zfss
-3. [简单冥想数.epub](https://pan.baidu.com/s/1iPEqETCunasjpf_jr8Usfg) 提取码: 3d62
+3. [简单冥想术.pdf](https://pan.baidu.com/s/12cQcnxnrNOUjjEhnn-JgiA) 提取码: ufrk
 
 ## 打造完整知识体系
 
