@@ -278,6 +278,8 @@
 8. [艺术：让人成为人.pdf]()
 9. [重新认识你自己.epub](https://pan.baidu.com/s/1xVRTUv_MIP-QMuWO5nESzQ) 提取码: fqn7
 10. [娱乐至死.epub](https://pan.baidu.com/s/1zatJYA6orXEWwvc8ryeBzw) 提取码: rivw
+11. [《通往奴役之路》《自由宪章》《致命的自负》.epub](https://pan.baidu.com/s/1C1vQiv4HtJ1xGZRsOVR24A) 提取码: wvu8
+12. [身份的焦虑.epub](https://pan.baidu.com/s/1UU0UxM7KCNVZ9rCCXM7abQ) 提取码: d7jt
 
 ### 把控事物规律，打破思维
 
