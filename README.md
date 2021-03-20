@@ -275,11 +275,14 @@
 5. [不能承受的生命之轻-米兰·昆德拉.epub](https://pan.baidu.com/s/1Hf8t0IjuEwBy9v6EZpz4gQ) 提取码: w342
 6. [万历十五年.epub](https://pan.baidu.com/s/1YSXaGxY48ow1N3ZmZ9RGNg) 提取码: ev88
 7. [菊与刀.epub](https://pan.baidu.com/s/1LH5bjSt93ptkjxEI-BhOug) 提取码: q7cy
-8. [艺术：让人成为人.pdf]()
+8. [艺术：让人成为人.pdf](https://pan.baidu.com/s/1qnHiHdaZ2901amgHziqXCQ) 提取码: xxa2
 9. [重新认识你自己.epub](https://pan.baidu.com/s/1xVRTUv_MIP-QMuWO5nESzQ) 提取码: fqn7
 10. [娱乐至死.epub](https://pan.baidu.com/s/1zatJYA6orXEWwvc8ryeBzw) 提取码: rivw
 11. [《通往奴役之路》《自由宪章》《致命的自负》.epub](https://pan.baidu.com/s/1C1vQiv4HtJ1xGZRsOVR24A) 提取码: wvu8
 12. [身份的焦虑.epub](https://pan.baidu.com/s/1UU0UxM7KCNVZ9rCCXM7abQ) 提取码: d7jt
+13. [枪炮、病菌与钢铁.epub](https://pan.baidu.com/s/1afW1CHhfuET8EAbsWn3zFg) 提取码: qt3y
+14. [中国历代政治得失.epub](https://pan.baidu.com/s/1RvifUFpfCy7wQ6qryCs2yA) 提取码: 3pik
+15. [人生的智慧.epub](https://pan.baidu.com/s/1bxJXw5zFw7004GoMVoSiWA) 提取码: vdnm
 
 ### 把控事物规律，打破思维
 
