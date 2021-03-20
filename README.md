@@ -274,6 +274,7 @@
 4. [人类简史+未来简史.epub](https://pan.baidu.com/s/1O2Veq41ElN1ZTKUQoVvuRg) 提取码: ng3z
 5. [不能承受的生命之轻-米兰·昆德拉.epub](https://pan.baidu.com/s/1Hf8t0IjuEwBy9v6EZpz4gQ) 提取码: w342
 6. [万历十五年.epub](https://pan.baidu.com/s/1YSXaGxY48ow1N3ZmZ9RGNg) 提取码: ev88
+7. [菊与刀.epub](https://pan.baidu.com/s/1LH5bjSt93ptkjxEI-BhOug) 提取码: q7cy
 
 ### 把控事物规律，打破思维
 
