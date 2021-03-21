@@ -287,6 +287,7 @@
 ### 把控事物规律，打破思维
 
 1. [如何阅读一本书.epub](https://pan.baidu.com/s/1aIF_e1csnwA4lxZxZs7jCg) 提取码: xfbb
+2. [清醒思考的艺术.epub](https://pan.baidu.com/s/15d0tgbpl9-FKNZzJ4PsMuw) 提取码: yurc
 
 ### 驾驭方法，实现财务自由
 
