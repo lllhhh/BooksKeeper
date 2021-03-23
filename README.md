@@ -290,6 +290,7 @@
 2. [清醒思考的艺术.epub](https://pan.baidu.com/s/15d0tgbpl9-FKNZzJ4PsMuw) 提取码: yurc
 3. [对伪心理学说不.epub](https://pan.baidu.com/s/15d8AzMPl_EJimSoTLaoUjQ) 提取码: 9sqa
 4. [象与骑象人-幸福的假设.epub](https://pan.baidu.com/s/1Z4Wkgnm9jafR_u1_ZQqfCg) 提取码: ux5b
+5. [乌合之众-大众心理研究.epub](https://pan.baidu.com/s/1czFNvBwQH6xpX_IuwkYi6A) 提取码: qyq7
 
 ### 驾驭方法，实现财务自由
 
