@@ -289,6 +289,7 @@
 1. [如何阅读一本书.epub](https://pan.baidu.com/s/1aIF_e1csnwA4lxZxZs7jCg) 提取码: xfbb
 2. [清醒思考的艺术.epub](https://pan.baidu.com/s/15d0tgbpl9-FKNZzJ4PsMuw) 提取码: yurc
 3. [对伪心理学说不.epub](https://pan.baidu.com/s/15d8AzMPl_EJimSoTLaoUjQ) 提取码: 9sqa
+4. [象与骑象人-幸福的假设.epub](https://pan.baidu.com/s/1Z4Wkgnm9jafR_u1_ZQqfCg) 提取码: ux5b
 
 ### 驾驭方法，实现财务自由
 
