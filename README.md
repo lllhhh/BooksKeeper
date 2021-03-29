@@ -293,6 +293,7 @@
 5. [乌合之众-大众心理研究.epub](https://pan.baidu.com/s/1czFNvBwQH6xpX_IuwkYi6A) 提取码: qyq7
 6. [哈佛的6堂独立思考课.epub](https://pan.baidu.com/s/18TISDCzGOZ_hZ-IvBP29Rw) 提取码: yju4
 7. [正面管教.epub](https://pan.baidu.com/s/1eS_ATUs2Now54lMBEfMvkA) 提取码: at75
+8. [孩子挑战.epub](https://pan.baidu.com/s/1XOG_cbGbMkGrKEgP-TZGog) 提取码: 29ms
 
 ### 驾驭方法，实现财务自由
 
