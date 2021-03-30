@@ -298,6 +298,7 @@
 ### 驾驭方法，实现财务自由
 
 1. [卓有成效的管理者.epub](https://pan.baidu.com/s/13hAr2IOHeQl29WpdHEQsWA) 提取码: ci9m
+2. [定位.epub](https://pan.baidu.com/s/1ZtMXayvdGl75hF5goU388A) 提取码: au85
 
 ### 搞定职场和生活
 
