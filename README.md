@@ -300,6 +300,7 @@
 1. [卓有成效的管理者.epub](https://pan.baidu.com/s/13hAr2IOHeQl29WpdHEQsWA) 提取码: ci9m
 2. [定位.epub](https://pan.baidu.com/s/1ZtMXayvdGl75hF5goU388A) 提取码: au85
 3. [从0到1.epub](https://pan.baidu.com/s/1QH9jYHM5t2gZGpgVlqJA-g) 提取码: jzxg
+4. [创业维艰.epub](https://pan.baidu.com/s/1pbp8i8aireh5MR8PXXoZhA) 提取码: 49qv
 
 ### 搞定职场和生活
 
