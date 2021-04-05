@@ -302,6 +302,7 @@
 3. [从0到1.epub](https://pan.baidu.com/s/1QH9jYHM5t2gZGpgVlqJA-g) 提取码: jzxg
 4. [创业维艰.epub](https://pan.baidu.com/s/1pbp8i8aireh5MR8PXXoZhA) 提取码: 49qv
 5. [贫穷的本质.epub](https://pan.baidu.com/s/1eqH7zSa21U64iDOOpGNR_Q) 提取码: z8jy
+6. [怪诞行为学.epub](https://pan.baidu.com/s/1Zo1UOlOlioA0Be4cXE998w) 提取码: r7vn
 
 ### 搞定职场和生活
 
