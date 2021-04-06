@@ -308,6 +308,7 @@
 ### 搞定职场和生活
 
 1. [高效能人士的七个习惯.epub](https://pan.baidu.com/s/1CYo9J4HbH5eOgwTEaZyUAA) 提取码: jije
+2. [权力_为什么只为某些人所拥有_-_杰弗瑞菲佛.epub](https://pan.baidu.com/s/1grmCgo40xtmWyVqWR3bikg) 提取码: 8ajm
 
 ### 掌控未来生存之道
 
