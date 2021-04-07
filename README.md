@@ -310,6 +310,7 @@
 1. [高效能人士的七个习惯.epub](https://pan.baidu.com/s/1CYo9J4HbH5eOgwTEaZyUAA) 提取码: jije
 2. [权力_为什么只为某些人所拥有_-_杰弗瑞菲佛.epub](https://pan.baidu.com/s/1grmCgo40xtmWyVqWR3bikg) 提取码: 8ajm
 3. [影响力.epub](https://pan.baidu.com/s/1qhEZdT0vjlksy4zbanXHhg) 提取码: angy
+4. [搞定.epub](https://pan.baidu.com/s/1-IMDnMdtmKO_x0o6arljZA) 提取码: 1dj1
 
 ### 掌控未来生存之道
 
