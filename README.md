@@ -311,6 +311,7 @@
 2. [权力_为什么只为某些人所拥有_-_杰弗瑞菲佛.epub](https://pan.baidu.com/s/1grmCgo40xtmWyVqWR3bikg) 提取码: 8ajm
 3. [影响力.epub](https://pan.baidu.com/s/1qhEZdT0vjlksy4zbanXHhg) 提取码: angy
 4. [搞定.epub](https://pan.baidu.com/s/1-IMDnMdtmKO_x0o6arljZA) 提取码: 1dj1
+5. [职场精进系列.epub](https://pan.baidu.com/s/1sZeIF8h8u4B8BITt9bfwsw) 提取码: 5aar
 
 ### 掌控未来生存之道
 
