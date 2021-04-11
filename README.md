@@ -313,6 +313,7 @@
 4. [搞定.epub](https://pan.baidu.com/s/1-IMDnMdtmKO_x0o6arljZA) 提取码: 1dj1
 5. [职场精进系列.epub](https://pan.baidu.com/s/1sZeIF8h8u4B8BITt9bfwsw) 提取码: 5aar
 6. [深度工作.epub](https://pan.baidu.com/s/1RVdWOW-BWN-hIffTtIFH6w) 提取码: ubmu
+7. [精要主义.epub](https://pan.baidu.com/s/18tEYcWXARQEJIBF-iRKFJA) 提取码: i6bg
 
 ### 掌控未来生存之道
 
