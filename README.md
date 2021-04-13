@@ -315,6 +315,7 @@
 6. [深度工作.epub](https://pan.baidu.com/s/1RVdWOW-BWN-hIffTtIFH6w) 提取码: ubmu
 7. [精要主义.epub](https://pan.baidu.com/s/18tEYcWXARQEJIBF-iRKFJA) 提取码: i6bg
 8. [非暴力沟通.epub](https://pan.baidu.com/s/1kTswIOpWgHr7H2rnRp_-4w) 提取码: ewve
+9. [习惯的力量.epub](https://pan.baidu.com/s/1S-Y9qS4Bnkt_u7B8lAy-9Q) 提取码: vvrp
 
 ### 掌控未来生存之道
 
