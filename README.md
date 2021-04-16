@@ -316,6 +316,7 @@
 7. [精要主义.epub](https://pan.baidu.com/s/18tEYcWXARQEJIBF-iRKFJA) 提取码: i6bg
 8. [非暴力沟通.epub](https://pan.baidu.com/s/1kTswIOpWgHr7H2rnRp_-4w) 提取码: ewve
 9. [习惯的力量.epub](https://pan.baidu.com/s/1S-Y9qS4Bnkt_u7B8lAy-9Q) 提取码: vvrp
+10. [战胜拖拉.epub](https://pan.baidu.com/s/1LAyVjOgL6ehLUTSpwR7Y6Q) 提取码: qj8t
 
 ### 掌控未来生存之道
 
