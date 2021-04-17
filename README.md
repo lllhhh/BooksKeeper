@@ -326,3 +326,6 @@
 
 1. [黑天鹅-反脆弱-随机生存.epub](https://pan.baidu.com/s/1g2fgMhnqiK3au71faz7RLA) 提取码: q8em
 2. [奇点临近.epub](https://pan.baidu.com/s/18m6epWrpXhxCFPrOw6MKOQ) 提取码: vkpa
+3. [智能时代.epub](https://pan.baidu.com/s/1V9RVc355q6BPeyFBeD0u0g) 提取码: dxem
+4. [洞见未来商业（《认识商业》《理解未来的7个原则》《畅销的原理》《胜利的法则》套装.epub](https://pan.baidu.com/s/1qFxaphxA8CR7hbO-41KV1g) 提取码: 7hyn
+5. [未来简史](https://pan.baidu.com/s/1LoqGGAx7Km3W7sBdkfxESw) 提取码: r2fs
