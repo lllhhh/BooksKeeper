@@ -325,3 +325,4 @@
 ### 掌控未来生存之道
 
 1. [黑天鹅-反脆弱-随机生存.epub](https://pan.baidu.com/s/1g2fgMhnqiK3au71faz7RLA) 提取码: q8em
+2. [奇点临近.epub](https://pan.baidu.com/s/18m6epWrpXhxCFPrOw6MKOQ) 提取码: vkpa
