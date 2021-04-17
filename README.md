@@ -317,6 +317,10 @@
 8. [非暴力沟通.epub](https://pan.baidu.com/s/1kTswIOpWgHr7H2rnRp_-4w) 提取码: ewve
 9. [习惯的力量.epub](https://pan.baidu.com/s/1S-Y9qS4Bnkt_u7B8lAy-9Q) 提取码: vvrp
 10. [战胜拖拉.epub](https://pan.baidu.com/s/1LAyVjOgL6ehLUTSpwR7Y6Q) 提取码: qj8t
+11. [沟通的艺术.epub](https://pan.baidu.com/s/1oKqGIsoyaLxo8jx78BPfqA) 提取码: 42nj
+12. [从行动开始.epub](https://pan.baidu.com/s/1aIpTbsGUGB4699v3HfmB-g) 提取码: b6f4
+13. [少即是多.epub](https://pan.baidu.com/s/1Dlt01ADzRcekDssP3UA-7w) 提取码: hskx
+14. [为何爱会伤人.epub](https://pan.baidu.com/s/1-krvfmov-Q4mMVTRGJOVJw) 提取码: 4sq5
 
 ### 掌控未来生存之道
 
