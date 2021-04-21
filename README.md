@@ -354,6 +354,8 @@
 
 ### 提升【学习力】的10本书
 
+1. [如何阅读一本书.epub](https://pan.baidu.com/s/1wHYu-J0iM98ZwSNoFzCkdg) 提取码: zfss
+
 ### 升级【核心竞争力】的10本书
 
 ### 引爆【快速成长】的10本书
