@@ -315,6 +315,7 @@
 5. [贫穷的本质.epub](https://pan.baidu.com/s/1eqH7zSa21U64iDOOpGNR_Q) 提取码: z8jy
 6. [怪诞行为学.epub](https://pan.baidu.com/s/1Zo1UOlOlioA0Be4cXE998w) 提取码: r7vn
 7. [经济学的思维方式.epub](https://pan.baidu.com/s/1hER4kzhjdtxFF9kctBIIGQ) 提取码: 44km
+8. [创业36条军规.epub](https://pan.baidu.com/s/1dfvXOwHno6ZvOfF-sEyVQw) 提取码: nvz8
 
 ### 搞定职场和生活
 
