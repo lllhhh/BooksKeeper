@@ -359,6 +359,8 @@
 ### 升级【核心竞争力】的10本书
 
 ### 引爆【快速成长】的10本书
+1. [意志力.epub](https://pan.baidu.com/s/1woFwbmChjzkBuGg_1iFTIw) 提取码: 97qb
+2. [习惯的力量.epub](https://pan.baidu.com/s/1S-Y9qS4Bnkt_u7B8lAy-9Q) 提取码: vvrp
 
 ### 轻松【应对职场】的10本书
 
