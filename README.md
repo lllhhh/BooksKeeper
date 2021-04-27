@@ -352,6 +352,7 @@
 4. [爱的五种语言 by Gary Chapman [Chapman, Gary].epub](https://pan.baidu.com/s/12I_rhWFJWXUYVu92KhYyWw) 提取码: x3gw 
 
 ### 解开【情绪真相】的10本书
+1. [幸福的方法.epub](https://pan.baidu.com/s/120gGi3ltoxS0MuiMU4NdrQ) 提取码: jwev
 
 ### 练就【社交高手】的10本书
 
