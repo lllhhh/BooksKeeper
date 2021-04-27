@@ -349,6 +349,7 @@
 1. [谈话的力量.epub](https://pan.baidu.com/s/1F_rV91mAEd1zKGaTHTS7VQ) 提取码: n4h6
 2. [沟通的艺术.epub](https://pan.baidu.com/s/1oKqGIsoyaLxo8jx78BPfqA) 提取码: 42nj
 3. [高难度谈话.epub](https://pan.baidu.com/s/12uug0pORMM1h9dBq3nbLCQ) 提取码: ipky
+4. [爱的五种语言 by Gary Chapman [Chapman, Gary].epub](https://pan.baidu.com/s/12I_rhWFJWXUYVu92KhYyWw) 提取码: x3gw 
 
 ### 解开【情绪真相】的10本书
 
