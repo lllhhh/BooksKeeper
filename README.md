@@ -57,6 +57,7 @@
 4. [深入理解计算机系统中文第三版301-550页.pdf](https://pan.baidu.com/s/1JQOE3bBlSCxnwJqT20A1sg) 提取码: 53a7
 5. [深入理解计算机系统中文第三版551-775.pdf](https://pan.baidu.com/s/1mtk4HUsiDd4uYLk-KJ8oxw) 提取码: 2n9e
 6. [编码隐匿在计算机软硬件背后的语言.epub](https://pan.baidu.com/s/1peEVKwJrBs1bWrLylSM8Cw) 提取码: 247h
+7. [计算机是怎么跑起来的.epub](https://pan.baidu.com/s/1XehOzYb9hdA73Vaw1CsxQw) 提取码: 9ry9
 
 ### 数据结构与算法
 
