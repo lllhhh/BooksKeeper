@@ -58,6 +58,7 @@
 5. [深入理解计算机系统中文第三版551-775.pdf](https://pan.baidu.com/s/1mtk4HUsiDd4uYLk-KJ8oxw) 提取码: 2n9e
 6. [编码隐匿在计算机软硬件背后的语言.epub](https://pan.baidu.com/s/1peEVKwJrBs1bWrLylSM8Cw) 提取码: 247h
 7. [计算机是怎么跑起来的.epub](https://pan.baidu.com/s/1XehOzYb9hdA73Vaw1CsxQw) 提取码: 9ry9
+8. [穿越计算机的迷雾.epub](https://pan.baidu.com/s/1-soKJPBi93iznJQdlmQ-kw) 提取码: gfgi
 
 ### 数据结构与算法
 
