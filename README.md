@@ -350,21 +350,25 @@
 1. [谈话的力量.epub](https://pan.baidu.com/s/1F_rV91mAEd1zKGaTHTS7VQ) 提取码: n4h6
 2. [沟通的艺术.epub](https://pan.baidu.com/s/1oKqGIsoyaLxo8jx78BPfqA) 提取码: 42nj
 3. [高难度谈话.epub](https://pan.baidu.com/s/12uug0pORMM1h9dBq3nbLCQ) 提取码: ipky
-4. [爱的五种语言 by Gary Chapman [Chapman, Gary].epub](https://pan.baidu.com/s/12I_rhWFJWXUYVu92KhYyWw) 提取码: x3gw 
+4. [爱的五种语言 by Gary Chapman [Chapman, Gary].epub](https://pan.baidu.com/s/12I_rhWFJWXUYVu92KhYyWw) 提取码: x3gw
 
 ### 解开【情绪真相】的10本书
+
 1. [幸福的方法.epub](https://pan.baidu.com/s/120gGi3ltoxS0MuiMU4NdrQ) 提取码: jwev
 
 ### 练就【社交高手】的10本书
 
+1. [请停止无效社交.epub](https://pan.baidu.com/s/1uZ-s4L9Smi9rmJw2Du4H2w) 提取码: i3q3
+
 ### 提升【学习力】的10本书
+
 1. [如何阅读一本书.epub](https://pan.baidu.com/s/1wHYu-J0iM98ZwSNoFzCkdg) 提取码: zfss
 2. [学习经典套装《刻意练习：如何从新手到大师》《学习之道》《练习的心态：如何培养耐心、专注和自律》《如何高效记忆》《如何高效阅读》《如何高效学习》《如何成为一个学习忍者》.epub](https://pan.baidu.com/s/1USn0MfvMMo1lMIB4dhLg3Q) 提取码: aech
-
 
 ### 升级【核心竞争力】的10本书
 
 ### 引爆【快速成长】的10本书
+
 1. [意志力.epub](https://pan.baidu.com/s/1woFwbmChjzkBuGg_1iFTIw) 提取码: 97qb
 2. [习惯的力量.epub](https://pan.baidu.com/s/1S-Y9qS4Bnkt_u7B8lAy-9Q) 提取码: vvrp
 
