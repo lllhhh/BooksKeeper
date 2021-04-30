@@ -368,6 +368,8 @@
 
 ### 升级【核心竞争力】的10本书
 
+1. [《“错误”的行为》《赢家的诅咒》《助推：如何做出有关健康、财富与幸福的最佳决策》.epub](https://pan.baidu.com/s/1iWI8ekDDcUDgkJ_tCbEdaQ) 提取码: vr86
+
 ### 引爆【快速成长】的10本书
 
 1. [意志力.epub](https://pan.baidu.com/s/1woFwbmChjzkBuGg_1iFTIw) 提取码: 97qb
