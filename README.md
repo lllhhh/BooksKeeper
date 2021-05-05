@@ -381,6 +381,7 @@
 1. [优秀到不能被忽视.epub](https://pan.baidu.com/s/19F0YYklICJtyHHCKUk4wGw) 提取码: xne7
 
 ### 开启【生活之美】的10本书
+1. [断舍离.epub](https://pan.baidu.com/s/1la9Kx4Ubn7FGywXjOdfTbg) 提取码: c3tr
 
 ### 实现【财富自由】的10本书
 
