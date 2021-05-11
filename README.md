@@ -390,3 +390,4 @@
 
 1. [硅谷钢铁侠.epub](https://pan.baidu.com/s/1OPAC_zqYytbUP3zD1k0UMA) 提取码: qbxy
 2. [褚时健传.epub](https://pan.baidu.com/s/1rB90x9aMOg7L1cGaWHwDUQ) 提取码: f4ra
+3. [我的职业是小说家.epub](https://pan.baidu.com/s/1KBSlBTmO8DuwCH-p2t6n0A 提取码: v7s2
