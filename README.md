@@ -393,3 +393,4 @@
 3. [我的职业是小说家.epub](https://pan.baidu.com/s/1KBSlBTmO8DuwCH-p2t6n0A 提取码: v7s2
 4. [我曾走在崩溃的边缘.epub](https://pan.baidu.com/s/1NpSt-_X7nD5MbO6UBPzzzw) 提取码: 64uy
 5. [别闹了，费曼先生.epub](https://pan.baidu.com/s/1aXaK_gNpH5ZLjJeUzBQDVw 提取码: 7ft8
+6. [鞋狗.epub](https://pan.baidu.com/s/1M-M70NA4ClFwyz8i3OXbQg 提取码: 6fp5
