@@ -386,6 +386,9 @@
 
 ### 实现【财富自由】的10本书
 
+1. [富爸爸系列全集（套装共32册）.epub](https://pan.baidu.com/s/17ToaKk6b27mDWw3slObFfg) 提取码: gsay
+2. [穷查理宝典.epub](https://pan.baidu.com/s/1gBEe23WuNKGhm62NbxbVag) 提取码: a2wp
+
 ### 走出【人生迷茫】的10本书
 
 1. [硅谷钢铁侠.epub](https://pan.baidu.com/s/1OPAC_zqYytbUP3zD1k0UMA) 提取码: qbxy
