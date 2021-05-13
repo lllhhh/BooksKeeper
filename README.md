@@ -392,3 +392,4 @@
 2. [褚时健传.epub](https://pan.baidu.com/s/1rB90x9aMOg7L1cGaWHwDUQ) 提取码: f4ra
 3. [我的职业是小说家.epub](https://pan.baidu.com/s/1KBSlBTmO8DuwCH-p2t6n0A 提取码: v7s2
 4. [我曾走在崩溃的边缘.epub](https://pan.baidu.com/s/1NpSt-_X7nD5MbO6UBPzzzw) 提取码: 64uy
+5. [别闹了，费曼先生.epub](https://pan.baidu.com/s/1aXaK_gNpH5ZLjJeUzBQDVw 提取码: 7ft8
