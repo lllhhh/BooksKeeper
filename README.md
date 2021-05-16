@@ -399,3 +399,4 @@
 6. [鞋狗.epub](https://pan.baidu.com/s/1M-M70NA4ClFwyz8i3OXbQg) 提取码: 6fp5
 7. [李开复自传.epub](https://pan.baidu.com/s/1LgdU-Zi833OMfT8cE_Pcyg) 提取码: bzs2
 8. [漫威之父斯坦·李.epub](https://pan.baidu.com/s/1hWaMqf0Xv6L8Sx6XmWpIQQ) 提取码: 126g
+9. [十年一觉电影梦——李安传.pdf](https://pan.baidu.com/s/1_elY2CGS12hiDnZE8aXEVA) 提取码: hk6c
