@@ -400,3 +400,4 @@
 7. [李开复自传.epub](https://pan.baidu.com/s/1LgdU-Zi833OMfT8cE_Pcyg) 提取码: bzs2
 8. [漫威之父斯坦·李.epub](https://pan.baidu.com/s/1hWaMqf0Xv6L8Sx6XmWpIQQ) 提取码: 126g
 9. [十年一觉电影梦——李安传.pdf](https://pan.baidu.com/s/1_elY2CGS12hiDnZE8aXEVA) 提取码: hk6c
+10. [列奥纳多·达·芬奇传-从凡人到天才的创造力密码 [美]沃尔特·艾萨克森.epub](https://pan.baidu.com/s/1iYrDkDBoWCESIGNZ23rW0w) 提取码: gwtb
