@@ -398,3 +398,4 @@
 5. [别闹了，费曼先生.epub](https://pan.baidu.com/s/1aXaK_gNpH5ZLjJeUzBQDVw) 提取码: 7ft8
 6. [鞋狗.epub](https://pan.baidu.com/s/1M-M70NA4ClFwyz8i3OXbQg) 提取码: 6fp5
 7. [李开复自传.epub](https://pan.baidu.com/s/1LgdU-Zi833OMfT8cE_Pcyg) 提取码: bzs2
+8. [漫威之父斯坦·李.epub](https://pan.baidu.com/s/1hWaMqf0Xv6L8Sx6XmWpIQQ) 提取码: 126g
