@@ -353,6 +353,7 @@
 3. [高难度谈话.epub](https://pan.baidu.com/s/12uug0pORMM1h9dBq3nbLCQ) 提取码: ipky
 4. [爱的五种语言 by Gary Chapman [Chapman, Gary].epub](https://pan.baidu.com/s/12I_rhWFJWXUYVu92KhYyWw) 提取码: x3gw
 5. [关键对话.epub](https://pan.baidu.com/s/1T-a_ingK4t9l708wsXGsuQ) 提取码: rb45
+6. [沃顿商学院-最实用的谈判课.epub](https://pan.baidu.com/s/1sS7prGitq5wsMB6KZ0fDuw) 提取码: i92u
 
 ### 解开【情绪真相】的10本书
 
