@@ -356,6 +356,7 @@
 6. [沃顿商学院-最实用的谈判课.epub](https://pan.baidu.com/s/1sS7prGitq5wsMB6KZ0fDuw) 提取码: i92u
 7. [好好说话2：简单有效的高情商沟通术.epub](https://pan.baidu.com/s/1kvFnyMV3nObxOtwDNiwEWQ) 提取码: 3k3j
 8. [蔡康永的说话之道.epub](https://pan.baidu.com/s/19IpUh-OVQy4VOKfZuNuziQ) 提取码: 1f7e
+9. [解决冲突的关键技巧.epub](https://pan.baidu.com/s/1xw6csFWfJb31FV_LEx_iJw) 提取码: 4h8e
 
 ### 解开【情绪真相】的10本书
 
