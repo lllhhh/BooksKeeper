@@ -366,6 +366,7 @@
 2. [活出最乐观的自己.epub](https://pan.baidu.com/s/1aQSaP7zu_Z_n2qpJAHTkyw) 提取码: rea2
 3. [伯恩斯新情绪疗法.epub](https://pan.baidu.com/s/1VGMmGhU3ZJ4MJwJtHl7k9g) 提取码: kwb4
 4. [自我训练：改变焦虑和抑郁的习惯.epub](https://pan.baidu.com/s/1OZehjHPtIyMokcH5qPNV2Q) 提取码: pq5p
+5. [被讨厌的勇气.epub](https://pan.baidu.com/s/1-QDNFX7At9eRkOd83ST-ow) 提取码: rvpf
 
 ### 练就【社交高手】的10本书
 
