@@ -369,6 +369,9 @@
 5. [被讨厌的勇气.epub](https://pan.baidu.com/s/1-QDNFX7At9eRkOd83ST-ow) 提取码: rvpf
 6. [别让情绪毁了你的努力.epub](https://pan.baidu.com/s/1yG5eeV5qgmq4gy7897erjA) 提取码: kjth
 7. [制怒心理学.epub](https://pan.baidu.com/s/13L6eHg-DTh0WLmOSuoUTyg) 提取码: da7q
+8. [掌控.epub](https://pan.baidu.com/s/1mLRlB0xAuCj2LceBPUkRag) 提取码: btyx
+9. [不完美，才美.mobi](https://pan.baidu.com/s/1EV8lIn87k4PzC97wsPjDZg) 提取码: kfac
+10. []()
 
 ### 练就【社交高手】的10本书
 
