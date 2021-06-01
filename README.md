@@ -171,6 +171,7 @@
 ### 架构
 
 1. [我的架构思想.epub](https://pan.baidu.com/s/1JniPQE10B77EjxIAcxzPYg) 提取码: kr6b
+2. [App研发录：架构设计、Crash分析和竞品技术分析.pdf](https://pan.baidu.com/s/1N5c4BS66imyCgy2wDzLl1A) 提取码: csfx
 
 ## 互联网
 
