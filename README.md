@@ -359,7 +359,6 @@
 7. [好好说话2：简单有效的高情商沟通术.epub](https://pan.baidu.com/s/1kvFnyMV3nObxOtwDNiwEWQ) 提取码: 3k3j
 8. [蔡康永的说话之道.epub](https://pan.baidu.com/s/19IpUh-OVQy4VOKfZuNuziQ) 提取码: 1f7e
 9. [解决冲突的关键技巧.epub](https://pan.baidu.com/s/1xw6csFWfJb31FV_LEx_iJw) 提取码: 4h8e
-10. [说话就是生产力]()
 
 ### 解开【情绪真相】的10本书
 
@@ -378,6 +377,7 @@
 
 1. [请停止无效社交.epub](https://pan.baidu.com/s/1uZ-s4L9Smi9rmJw2Du4H2w) 提取码: i3q3
 2. [情感勒索.epub](https://pan.baidu.com/s/1fPbvWl7t76hqBk0UFtQj4w) 提取码: pcs2
+3. [别独自用餐.epub](https://pan.baidu.com/s/12Bw-pxC248VQAYyK9CM1Ew) 提取码: 67mx
 
 ### 提升【学习力】的10本书
 
