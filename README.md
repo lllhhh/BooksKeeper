@@ -377,6 +377,7 @@
 ### 练就【社交高手】的10本书
 
 1. [请停止无效社交.epub](https://pan.baidu.com/s/1uZ-s4L9Smi9rmJw2Du4H2w) 提取码: i3q3
+2. [情感勒索.epub](https://pan.baidu.com/s/1fPbvWl7t76hqBk0UFtQj4w) 提取码: pcs2
 
 ### 提升【学习力】的10本书
 
