@@ -380,6 +380,7 @@
 3. [别独自用餐.epub](https://pan.baidu.com/s/12Bw-pxC248VQAYyK9CM1Ew) 提取码: 67mx
 4. [强势：如何在工作、恋爱和人际交往中快速取得主导.epub](https://pan.baidu.com/s/1rdFljNfJ33K0i_btxRtEqA) 提取码: 5ans
 5. [社交天性.epub](https://pan.baidu.com/s/1cQtu71i5ubKLRW6lLV9TRQ) 提取码: nxf6
+6. [人际的奥秘.epub](https://pan.baidu.com/s/1AnN1rCHvrLpXuZED1hd6ZA) 提取码: q5v6
 
 ### 提升【学习力】的10本书
 
