@@ -378,6 +378,7 @@
 1. [请停止无效社交.epub](https://pan.baidu.com/s/1uZ-s4L9Smi9rmJw2Du4H2w) 提取码: i3q3
 2. [情感勒索.epub](https://pan.baidu.com/s/1fPbvWl7t76hqBk0UFtQj4w) 提取码: pcs2
 3. [别独自用餐.epub](https://pan.baidu.com/s/12Bw-pxC248VQAYyK9CM1Ew) 提取码: 67mx
+4. [社交天性.epub](https://pan.baidu.com/s/1cQtu71i5ubKLRW6lLV9TRQ) 提取码: nxf6
 
 ### 提升【学习力】的10本书
 
