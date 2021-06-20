@@ -228,6 +228,7 @@
 7. [富爸爸系列全集（套装共32册）.epub](https://pan.baidu.com/s/17ToaKk6b27mDWw3slObFfg) 提取码: gsay
 8. [原则.epub](https://pan.baidu.com/s/1eyi_I1Ff9apKrLIIkiK1BA) 提取码: 6phr
 9. [谁是中国城市领跑者.epub](https://pan.baidu.com/s/1x_Yy7j4CxpXd8yNC2eQP1w) 提取码: qd3u
+10. [35岁前要上的33堂理财课.epub](https://pan.baidu.com/s/1avRZzQ_CkgKmI7s-V3f4bA) 提取码: bjei
 
 ### 经济学
 
