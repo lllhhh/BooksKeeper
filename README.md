@@ -389,6 +389,7 @@
 
 1. [如何阅读一本书.epub](https://pan.baidu.com/s/1wHYu-J0iM98ZwSNoFzCkdg) 提取码: zfss
 2. [学习经典套装《刻意练习：如何从新手到大师》《学习之道》《练习的心态：如何培养耐心、专注和自律》《如何高效记忆》《如何高效阅读》《如何高效学习》《如何成为一个学习忍者》.epub](https://pan.baidu.com/s/1USn0MfvMMo1lMIB4dhLg3Q) 提取码: aech
+3. [学习力.epub](https://pan.baidu.com/s/1zLFc65nDslXcRvjpA2Bdjg) 提取码: x3nt
 
 ### 升级【核心竞争力】的10本书
 
