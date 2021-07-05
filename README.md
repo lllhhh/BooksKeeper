@@ -391,6 +391,7 @@
 2. [学习经典套装《刻意练习：如何从新手到大师》《学习之道》《练习的心态：如何培养耐心、专注和自律》《如何高效记忆》《如何高效阅读》《如何高效学习》《如何成为一个学习忍者》.epub](https://pan.baidu.com/s/1USn0MfvMMo1lMIB4dhLg3Q) 提取码: aech
 3. [学习力.epub](https://pan.baidu.com/s/1zLFc65nDslXcRvjpA2Bdjg) 提取码: x3nt
 4. [认知天性.epub](https://pan.baidu.com/s/1Da9aEH78ESUoOIfYakw7aQ) 提取码: raie
+5. [如何学习.epub](https://pan.baidu.com/s/1B-8dMMKVehKehrBG5B1Esw) 提取码: e8v5
 
 ### 升级【核心竞争力】的10本书
 
