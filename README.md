@@ -392,6 +392,7 @@
 3. [学习力.epub](https://pan.baidu.com/s/1zLFc65nDslXcRvjpA2Bdjg) 提取码: x3nt
 4. [认知天性.epub](https://pan.baidu.com/s/1Da9aEH78ESUoOIfYakw7aQ) 提取码: raie
 5. [如何学习.epub](https://pan.baidu.com/s/1B-8dMMKVehKehrBG5B1Esw) 提取码: e8v5
+6. [这样读书就够了.epub](https://pan.baidu.com/s/1fHKFWe65_3XMGLX2KL2buw) 提取码: n9cf
 
 ### 升级【核心竞争力】的10本书
 
