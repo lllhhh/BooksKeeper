@@ -395,6 +395,7 @@
 6. [这样读书就够了.epub](https://pan.baidu.com/s/1fHKFWe65_3XMGLX2KL2buw) 提取码: n9cf
 7. [好好学习.epub](https://pan.baidu.com/s/1CJUbC1XdPI9zGHS6SytHvQ) 提取码: jang
 8. [超级记忆.epub](https://pan.baidu.com/s/1mpjwumGzW7Om5kCRiqXvag) 提取码: 6giv
+9. [能力陷阱.epub](https://pan.baidu.com/s/1rP-OD4kkDRt9wki0vQGIDg) 提取码: br7h
 
 ### 升级【核心竞争力】的10本书
 
