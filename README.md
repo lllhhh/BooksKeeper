@@ -400,6 +400,9 @@
 ### 升级【核心竞争力】的10本书
 
 1. [《“错误”的行为》《赢家的诅咒》《助推：如何做出有关健康、财富与幸福的最佳决策》.epub](https://pan.baidu.com/s/1iWI8ekDDcUDgkJ_tCbEdaQ) 提取码: vr86
+2. [策略思维.epub](https://pan.baidu.com/s/1JnWIbDGf5MMVmfGyb8KLhw) 提取码: ucjm
+3. [万万没想到.epub](https://pan.baidu.com/s/1OMGmOYp-GmvM7P9yg7JcAQ) 提取码: gk4u
+4. [清醒思考的艺术.epub](https://pan.baidu.com/s/14MdIHeahrK3Vvvl9JzxLzw) 提取码: mmrv
 
 ### 引爆【快速成长】的10本书
 
