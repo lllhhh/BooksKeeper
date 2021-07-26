@@ -403,6 +403,7 @@
 2. [策略思维.epub](https://pan.baidu.com/s/1JnWIbDGf5MMVmfGyb8KLhw) 提取码: ucjm
 3. [万万没想到.epub](https://pan.baidu.com/s/1OMGmOYp-GmvM7P9yg7JcAQ) 提取码: gk4u
 4. [清醒思考的艺术.epub](https://pan.baidu.com/s/14MdIHeahrK3Vvvl9JzxLzw) 提取码: mmrv
+5. [驱动力.epub](https://pan.baidu.com/s/17FOeJzTgLSH4Ca9bdzJ0qw) 提取码: hn97
 
 ### 引爆【快速成长】的10本书
 
