@@ -404,6 +404,9 @@
 3. [万万没想到.epub](https://pan.baidu.com/s/1OMGmOYp-GmvM7P9yg7JcAQ) 提取码: gk4u
 4. [清醒思考的艺术.epub](https://pan.baidu.com/s/14MdIHeahrK3Vvvl9JzxLzw) 提取码: mmrv
 5. [驱动力.epub](https://pan.baidu.com/s/17FOeJzTgLSH4Ca9bdzJ0qw) 提取码: hn97
+6. [结构思考力.epub](https://pan.baidu.com/s/17CjCFpDglGmVFbV7YkcxkA) 提取码: uvrk
+7. [深度思维：透过复杂直抵本质的跨越式成长方法论 by 叶修 .epub](https://pan.baidu.com/s/1Iol3tDQmgvoWND_TM8qo-g) 提取码: cyxn
+8. [认知：人行为背后的思维与智能.epub](https://pan.baidu.com/s/1ka7NU-RWkqsH5j92G5MvUA) 提取码: 9mik
 
 ### 引爆【快速成长】的10本书
 
