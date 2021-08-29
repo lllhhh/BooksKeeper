@@ -408,6 +408,7 @@
 7. [深度思维：透过复杂直抵本质的跨越式成长方法论 by 叶修 .epub](https://pan.baidu.com/s/1Iol3tDQmgvoWND_TM8qo-g) 提取码: cyxn
 8. [认知：人行为背后的思维与智能.epub](https://pan.baidu.com/s/1ka7NU-RWkqsH5j92G5MvUA) 提取码: 9mik
 9. [如何想到又做到.epub](https://pan.baidu.com/s/1X5_R-poo2yLFQAmzvbnclA) 提取码: xnqe
+10. [全新思维.epub](https://pan.baidu.com/s/1pEQ9k6LbO6MAC_ygaJy6pw) 提取码: ra3e
 
 ### 引爆【快速成长】的10本书
 
