@@ -279,6 +279,7 @@
 1. [深度思维：透过复杂直抵本质的跨越式成长方法论 by 叶修 .epub](https://pan.baidu.com/s/1Iol3tDQmgvoWND_TM8qo-g) 提取码: cyxn
 2. [如何阅读一本书.epub](https://pan.baidu.com/s/1wHYu-J0iM98ZwSNoFzCkdg) 提取码: zfss
 3. [简单冥想术.pdf](https://pan.baidu.com/s/12cQcnxnrNOUjjEhnn-JgiA) 提取码: ufrk
+4. [十四五新发展格局.epub](https://pan.baidu.com/s/1x3UKfHWCVT2sABvlkewagQ) 提取码: xvbm
 
 ## 打造完整知识体系
 
@@ -427,6 +428,8 @@
 
 1. [富爸爸系列全集（套装共32册）.epub](https://pan.baidu.com/s/17ToaKk6b27mDWw3slObFfg) 提取码: gsay
 2. [穷查理宝典.epub](https://pan.baidu.com/s/1gBEe23WuNKGhm62NbxbVag) 提取码: a2wp
+3. [卧底经济学.epub]()
+4. [好好赚钱.epub]()
 
 ### 走出【人生迷茫】的10本书
 
