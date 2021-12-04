@@ -428,8 +428,8 @@
 
 1. [富爸爸系列全集（套装共32册）.epub](https://pan.baidu.com/s/17ToaKk6b27mDWw3slObFfg) 提取码: gsay
 2. [穷查理宝典.epub](https://pan.baidu.com/s/1gBEe23WuNKGhm62NbxbVag) 提取码: a2wp
-3. [卧底经济学.epub]()
-4. [好好赚钱.epub]()
+3. [卧底经济学.epub](https://pan.baidu.com/s/1WokbtfYDw_pwAVxsYXCuDA) 提取码: wu2d
+4. [好好赚钱.epub](https://pan.baidu.com/s/1nGiGu40V-7bWen67a4NHHA) 提取码: nx3s
 
 ### 走出【人生迷茫】的10本书
 
