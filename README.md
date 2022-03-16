@@ -423,6 +423,7 @@
 ### 开启【生活之美】的10本书
 
 1. [断舍离.epub](https://pan.baidu.com/s/1la9Kx4Ubn7FGywXjOdfTbg) 提取码: c3tr
+2. [怦然心动的人生整理魔法](https://pan.baidu.com/s/1yH8c6Nc5VtIoVFl5v-vyog) 提取码: ngjz
 
 ### 实现【财富自由】的10本书
 
