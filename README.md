@@ -265,7 +265,7 @@
 4. [狗心.米·布尔加科夫.epub](https://pan.baidu.com/s/1GWxuYHbCSeb3Ich_GS8b0A) 提取码: rpxb
 5. [夜行船.epub](https://pan.baidu.com/s/1pZSXxLh7M2fhgLmkI0r0jw) 提取码: vf3i
 6. [孙子兵法·鬼谷子·三十六计：一本书读懂兵书三绝.epub](https://pan.baidu.com/s/1dPUFDTePDCinxNKPEPgRuQ) 提取码: itty
-7. [山海经(白话全译彩图珍藏版)--徐客.epub](链接: https://pan.baidu.com/s/1efXJzpMnOhcSxzKppbbYSA) 提取码: jyh2
+7. [山海经(白话全译彩图珍藏版)--徐客.epub](https://pan.baidu.com/s/1efXJzpMnOhcSxzKppbbYSA) 提取码: jyh2
 8. [鲁迅全集（18卷）.epub](https://pan.baidu.com/s/12i1-XcFVZtdO_OinN7zYrQ) 提取码: xyem
 9. [无法直面的人生--鲁迅传.epub](https://pan.baidu.com/s/11Zr8YyWCDfjuIrBrQEoEkw) 提取码: kib2
 
@@ -276,6 +276,7 @@
 ## 科普
 
 1. [农业与工业化 - 张培刚.pdf](https://pan.baidu.com/s/1f8JlTGLGsbw29pLkP5Q0HA) 提取码: cvb1
+2. [第一推动丛书·综合系列（升级版套装共8册，涉及未来图景、人工智能、复杂系统等）.epub](https://pan.baidu.com/s/1wQ1mlks2gXk3QO3t9f2-IA) 提取码: m6y9
 
 ## 格局与思维
 
