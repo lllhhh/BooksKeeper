@@ -163,6 +163,7 @@
 32. [TensorFlow2.0 深度学习应用编程快速入门.epub](https://pan.baidu.com/s/1V2SegF9sYeq7-F0B4iEtjQ) 提取码: hwek
 33. [PyTorch实战计算机视觉.pdf](https://pan.baidu.com/s/1DGlxyHZHHyRgHBmUw7az3Q) 提取码: uuh6
 34. [深度学习的数学.pdf](https://pan.baidu.com/s/1KzE-O7DRIDkEqxftMVp5yQ) 提取码: hqkb
+45. [深度强化学习：基础、研究与应用 (董豪 等) .pdf](https://pan.baidu.com/s/12yJOdNuILejUeqsZBETRmQ) 提取码: 42h9
 
 ### 版本控制
 
