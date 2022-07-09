@@ -241,7 +241,7 @@
 7. [经济学了没](https://pan.baidu.com/s/11rerN1bj_W9c-N7RwPW8wA) 提取码: 22y9
 8. [私募股权投资实务与案例（第二版11）-潘启龙](https://pan.baidu.com/s/1q9O3MUGb3bWlbK0zCsvz1g) 提取码: 3u6d
 9. [中国经济2020.pdf](https://pan.baidu.com/s/1iqiQ0jV92JcJEoM_RPueKg) 提取码: mht2
-10. [中国经济2021.pdg](https://pan.baidu.com/s/160Xw60T_cNlMWrR_I75DVQ) 提取码: b9cn
+10. [中国经济2021.pdf](https://pan.baidu.com/s/160Xw60T_cNlMWrR_I75DVQ) 提取码: b9cn
 
 ### 金融
 
@@ -266,6 +266,8 @@
 5. [夜行船.epub](https://pan.baidu.com/s/1pZSXxLh7M2fhgLmkI0r0jw) 提取码: vf3i
 6. [孙子兵法·鬼谷子·三十六计：一本书读懂兵书三绝.epub](https://pan.baidu.com/s/1dPUFDTePDCinxNKPEPgRuQ) 提取码: itty
 7. [山海经(白话全译彩图珍藏版)--徐客.epub](链接: https://pan.baidu.com/s/1efXJzpMnOhcSxzKppbbYSA) 提取码: jyh2
+8. [鲁迅全集（18卷）.epub](https://pan.baidu.com/s/12i1-XcFVZtdO_OinN7zYrQ) 提取码: xyem
+9. [无法直面的人生--鲁迅传.epub](https://pan.baidu.com/s/11Zr8YyWCDfjuIrBrQEoEkw) 提取码: kib2
 
 ## 历史
 
