@@ -141,7 +141,7 @@
 9. [machine-learning-projects-python.epub](https://pan.baidu.com/s/1kS5dXaDBqfTfsGmRW9ocYA)  提取码: jvmb
 10. [GAN：实战生成对抗网络.pdf](https://pan.baidu.com/s/1W71IcAi202rd6VX1jt3fVA)  提取码: bc85)
 11. [DeppMind.ai hand-illustrated.pdf](https://pan.baidu.com/s/12W7r2WnH6rCpKdRVAxI3sA)  提取码: mmvj
-12. [keras图像深度学习实战.pdf](https://pan.baidu.com/s/1FCAdBRJvGUiceKO3q8oxdw)  提取码: nf7u)
+12. [keras图像深度学习实战.pdf](https://pan.baidu.com/s/1FCAdBRJvGUiceKO3q8oxdw)  提取码: nf7u
 13. [DeepMind.ai.courses.pdf](https://pan.baidu.com/s/1a4zwQ_QZv4ZhRQM0tLpZuA)  提取码: n4md
 14. [深度有趣.pdf](https://pan.baidu.com/s/11dw9RaHcuLjdgcTbyCOtFw) 提取码: k6nd
 15. [《深度学习核心技术与实践》.pdf](https://pan.baidu.com/s/1JAxUPWVfGtKAIK-jW27sMg)  提取码: 8m2z
