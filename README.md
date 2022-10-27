@@ -127,6 +127,7 @@
 18. [NLTK基础教程：用NLTK和Python库构建机器学习应用.pdf](https://pan.baidu.com/s/1JaLj48rxK-Wnl7uanbxWGA) 提取码: xkkc
 19. [计算机视觉-算法与应用(中文版).pdf](https://pan.baidu.com/s/1cJSyWXsy6oOGicm76wZTXg) 提取码: 4nfd
 19. [面向移动设备的机器学习 ([印]雷瓦西· 戈帕拉克里希南 著 武海军 译) .pdf](https://pan.baidu.com/s/1w1Wa6b738w5Na7EaC42SPQ) 提取码: b9yz
+20. [Mobile Deep Learning with TensorFlow Lite, ML Kit.epub](https://pan.baidu.com/s/1KzSqtzavMATJ52XSWnHMwg) 提取码: pb3y
 
 #### 深度学习
 
