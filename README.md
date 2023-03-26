@@ -441,6 +441,7 @@
 3. [卧底经济学.epub](https://pan.baidu.com/s/1WokbtfYDw_pwAVxsYXCuDA) 提取码: wu2d
 4. [好好赚钱.epub](https://pan.baidu.com/s/1nGiGu40V-7bWen67a4NHHA) 提取码: nx3s
 5. [财富自由之路.epub](链接: https://pan.baidu.com/s/1npkA4rD9hRuq9yWgey_HLA) 提取码: xp8j
+6. [躺着赚钱.epub](链接: https://pan.baidu.com/s/1q8OE6sbl1PdnNuvTvI5qQQ) 提取码: r4ce
 
 ### 走出【人生迷茫】的10本书
 
