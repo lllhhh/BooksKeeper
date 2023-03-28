@@ -443,6 +443,7 @@
 5. [财富自由之路.epub](链接: https://pan.baidu.com/s/1npkA4rD9hRuq9yWgey_HLA) 提取码: xp8j
 6. [躺着赚钱.epub](链接: https://pan.baidu.com/s/1q8OE6sbl1PdnNuvTvI5qQQ) 提取码: r4ce
 7. [工作前5年，决定你一生的财富-三公子.epub](链接: https://pan.baidu.com/s/1t78HKdC76RAOSdqVT5q3zg) 提取码: zafx
+8. [从一无所有到百万富翁  (澳)皮特·斯潘 .epub](链接: https://pan.baidu.com/s/12MfuIcGQhCIpBfinZW-MPA) 提取码: jmz9
 
 ### 走出【人生迷茫】的10本书
 
