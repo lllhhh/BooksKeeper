@@ -433,6 +433,7 @@
 2. [怦然心动的人生整理魔法](https://pan.baidu.com/s/1yH8c6Nc5VtIoVFl5v-vyog) 提取码: ngjz
 3. [饮食的迷思](https://pan.baidu.com/s/1j1BokM8NpzuOyyQX2foiBg) 提取码: xkgp
 4. [有些事现在不做,一辈子都不会做了](https://pan.baidu.com/s/1LFgt102Sh7r5ukbJGy1HGQ) 提取码: ir6b
+5. [旅行的艺术.epub](链接: https://pan.baidu.com/s/18GfHEb6pQtsFmS0QJDDRAQ) 提取码: 2b96
 
 ### 实现【财富自由】的10本书
 
