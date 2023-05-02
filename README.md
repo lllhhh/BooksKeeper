@@ -446,6 +446,7 @@
 7. [工作前5年，决定你一生的财富-三公子.epub](链接: https://pan.baidu.com/s/1t78HKdC76RAOSdqVT5q3zg) 提取码: zafx
 8. [从一无所有到百万富翁  (澳)皮特·斯潘 .epub](链接: https://pan.baidu.com/s/12MfuIcGQhCIpBfinZW-MPA) 提取码: jmz9
 9. [百万富翁快车道.pdf](链接: https://pan.baidu.com/s/1GLunuDv8lkH5_JuVuMTErg) 提取码: n9ik
+10. [投资中最简单的事.epub](链接: https://pan.baidu.com/s/12xb8G1v-d_0lI_6nMJiECA) 提取码: rkuu
 
 ### 走出【人生迷茫】的10本书
 
