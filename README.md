@@ -434,6 +434,7 @@
 3. [饮食的迷思](https://pan.baidu.com/s/1j1BokM8NpzuOyyQX2foiBg) 提取码: xkgp
 4. [有些事现在不做,一辈子都不会做了](https://pan.baidu.com/s/1LFgt102Sh7r5ukbJGy1HGQ) 提取码: ir6b
 5. [旅行的艺术.epub](链接: https://pan.baidu.com/s/18GfHEb6pQtsFmS0QJDDRAQ) 提取码: 2b96
+6. [今天也要用心过生活.epub](https://pan.baidu.com/s/1HA8oTb4mtcXiv6x0Dq8uZQ) 提取码: 4yb7
 
 ### 实现【财富自由】的10本书
 
@@ -441,12 +442,12 @@
 2. [穷查理宝典.epub](https://pan.baidu.com/s/1gBEe23WuNKGhm62NbxbVag) 提取码: a2wp
 3. [卧底经济学.epub](https://pan.baidu.com/s/1WokbtfYDw_pwAVxsYXCuDA) 提取码: wu2d
 4. [好好赚钱.epub](https://pan.baidu.com/s/1nGiGu40V-7bWen67a4NHHA) 提取码: nx3s
-5. [财富自由之路.epub](链接: https://pan.baidu.com/s/1npkA4rD9hRuq9yWgey_HLA) 提取码: xp8j
-6. [躺着赚钱.epub](链接: https://pan.baidu.com/s/1q8OE6sbl1PdnNuvTvI5qQQ) 提取码: r4ce
-7. [工作前5年，决定你一生的财富-三公子.epub](链接: https://pan.baidu.com/s/1t78HKdC76RAOSdqVT5q3zg) 提取码: zafx
-8. [从一无所有到百万富翁  (澳)皮特·斯潘 .epub](链接: https://pan.baidu.com/s/12MfuIcGQhCIpBfinZW-MPA) 提取码: jmz9
-9. [百万富翁快车道.pdf](链接: https://pan.baidu.com/s/1GLunuDv8lkH5_JuVuMTErg) 提取码: n9ik
-10. [投资中最简单的事.epub](链接: https://pan.baidu.com/s/12xb8G1v-d_0lI_6nMJiECA) 提取码: rkuu
+5. [财富自由之路.epub](https://pan.baidu.com/s/1npkA4rD9hRuq9yWgey_HLA) 提取码: xp8j
+6. [躺着赚钱.epub](https://pan.baidu.com/s/1q8OE6sbl1PdnNuvTvI5qQQ) 提取码: r4ce
+7. [工作前5年，决定你一生的财富-三公子.epub](https://pan.baidu.com/s/1t78HKdC76RAOSdqVT5q3zg) 提取码: zafx
+8. [从一无所有到百万富翁  (澳)皮特·斯潘 .epub](https://pan.baidu.com/s/12MfuIcGQhCIpBfinZW-MPA) 提取码: jmz9
+9. [百万富翁快车道.pdf](https://pan.baidu.com/s/1GLunuDv8lkH5_JuVuMTErg) 提取码: n9ik
+10. [投资中最简单的事.epub](https://pan.baidu.com/s/12xb8G1v-d_0lI_6nMJiECA) 提取码: rkuu
 
 ### 走出【人生迷茫】的10本书
 
