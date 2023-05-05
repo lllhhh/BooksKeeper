@@ -435,6 +435,7 @@
 4. [有些事现在不做,一辈子都不会做了](https://pan.baidu.com/s/1LFgt102Sh7r5ukbJGy1HGQ) 提取码: ir6b
 5. [旅行的艺术.epub](链接: https://pan.baidu.com/s/18GfHEb6pQtsFmS0QJDDRAQ) 提取码: 2b96
 6. [今天也要用心过生活.epub](https://pan.baidu.com/s/1HA8oTb4mtcXiv6x0Dq8uZQ) 提取码: 4yb7
+7. [睡眠革命.epub](https://pan.baidu.com/s/1F2emiyoL0jVQkp4cN_GNxw) 提取码: 7y6u
 
 ### 实现【财富自由】的10本书
 
