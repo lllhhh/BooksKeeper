@@ -438,7 +438,7 @@
 7. [睡眠革命.epub](https://pan.baidu.com/s/1F2emiyoL0jVQkp4cN_GNxw) 提取码: 7y6u
 8. [精要主义.epub](https://pan.baidu.com/s/1lQAPl9ptU9sYC97QNZP3Mg) 提取码: xxms
 9. [皮肤的秘密.epub](https://pan.baidu.com/s/1j3UmzRxbl3Z5uZcdvO7otA) 提取码: afky
-10. [当我谈跑步时，我谈些什么.epub](https://pan.baidu.com/s/1e3JYsPC0MaSKt9L7eMaBeg 提取码: vp8j)
+10. [当我谈跑步时，我谈些什么.epub](https://pan.baidu.com/s/1e3JYsPC0MaSKt9L7eMaBeg) 提取码: vp8j
 
 ### 实现【财富自由】的10本书
 
