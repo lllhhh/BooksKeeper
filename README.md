@@ -429,6 +429,7 @@
 1. [12个工作基本.epub](https://pan.baidu.com/s/1_QIQ6wpDRo-oNWxvEYbUmw) 提取码: rx2g
 1. [公司绝不会告诉你的50大秘密.pdf](https://pan.baidu.com/s/1zGYJwQJybBTKTTCqDxDuEA) 提取码: 33uu
 1. [光速成长.epub](https://pan.baidu.com/s/1wC7o3hky4yAQUmnnHB6S9w) 提取码: wjgh
+1. [秘书工作手记2.epub](https://pan.baidu.com/s/1vsJoFC4BE66ASHE-jdv41w) 提取码: 8c3t
 
 ### 开启【生活之美】的10本书
 
