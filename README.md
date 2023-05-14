@@ -430,6 +430,7 @@
 1. [公司绝不会告诉你的50大秘密.pdf](https://pan.baidu.com/s/1zGYJwQJybBTKTTCqDxDuEA) 提取码: 33uu
 1. [光速成长.epub](https://pan.baidu.com/s/1wC7o3hky4yAQUmnnHB6S9w) 提取码: wjgh
 1. [秘书工作手记2.epub](https://pan.baidu.com/s/1vsJoFC4BE66ASHE-jdv41w) 提取码: 8c3t
+1. [职场动物进化手册.pdf](https://pan.baidu.com/s/1h0uFiHXhVI41kroy0DQLdg) 提取码: ntc3
 
 ### 开启【生活之美】的10本书
 
