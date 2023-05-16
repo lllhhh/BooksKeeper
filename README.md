@@ -431,6 +431,7 @@
 1. [光速成长.epub](https://pan.baidu.com/s/1wC7o3hky4yAQUmnnHB6S9w) 提取码: wjgh
 1. [秘书工作手记2.epub](https://pan.baidu.com/s/1vsJoFC4BE66ASHE-jdv41w) 提取码: 8c3t
 1. [职场动物进化手册.pdf](https://pan.baidu.com/s/1h0uFiHXhVI41kroy0DQLdg) 提取码: ntc3
+1. [是谁出的题这么难，到处都是正确答案.epub](https://pan.baidu.com/s/1BkR9FBW__Q1nAstQUm271A) 提取码: 1ej6
 
 ### 开启【生活之美】的10本书
 
