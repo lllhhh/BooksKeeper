@@ -433,6 +433,7 @@
 1. [职场动物进化手册.pdf](https://pan.baidu.com/s/1h0uFiHXhVI41kroy0DQLdg) 提取码: ntc3
 1. [是谁出的题这么难，到处都是正确答案.epub](https://pan.baidu.com/s/1BkR9FBW__Q1nAstQUm271A) 提取码: 1ej6
 1. [你只是看起来很努力.pdf](https://pan.baidu.com/s/18gIiSlp7jL7dC_ByaXrdlQ) 提取码: duij
+1. [领导梯队.pdf](https://pan.baidu.com/s/1e1FtodGgaqzFy5MtXoNaPQ) 提取码: mugp
 
 ### 开启【生活之美】的10本书
 
