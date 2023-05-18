@@ -422,6 +422,7 @@
 
 1. [意志力.epub](https://pan.baidu.com/s/1woFwbmChjzkBuGg_1iFTIw) 提取码: 97qb
 2. [习惯的力量.epub](https://pan.baidu.com/s/1S-Y9qS4Bnkt_u7B8lAy-9Q) 提取码: vvrp
+3. [拖延心理学.pdf](https://pan.baidu.com/s/1AnJDmkUuxENWuWPphGxYGQ) 提取码: 6mpm
 
 ### 轻松【应对职场】的10本书
 
