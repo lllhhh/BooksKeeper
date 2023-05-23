@@ -425,6 +425,7 @@
 3. [拖延心理学.pdf](https://pan.baidu.com/s/1AnJDmkUuxENWuWPphGxYGQ) 提取码: 6mpm
 4. [把时间当做朋友.mobi](https://pan.baidu.com/s/1L84wgH0uTIBQnyxshOnF0A) 提取码: q4wa
 5. [人生定位.pdf](https://pan.baidu.com/s/1yz6bLbaPDpdAfi1cau98pA) 提取码: qffj
+6. [请停止无效努力.pdf](https://pan.baidu.com/s/1s72q4qPjgemR6c8GpZZvxQ) 提取码: q4n7
 
 ### 轻松【应对职场】的10本书
 
