@@ -427,6 +427,7 @@
 5. [人生定位.pdf](https://pan.baidu.com/s/1yz6bLbaPDpdAfi1cau98pA) 提取码: qffj
 6. [请停止无效努力.pdf](https://pan.baidu.com/s/1s72q4qPjgemR6c8GpZZvxQ) 提取码: q4n7
 7. [发现自己的优势.pdf](https://pan.baidu.com/s/15jA0SrhQyiV2qllWb6phVA) 提取码: 42xb
+8. [跃迁：成为高手的技术.pdf](https://pan.baidu.com/s/1251F5mbgET-rx8SaEvXoaA) 提取码: 85se
 
 ### 轻松【应对职场】的10本书
 
