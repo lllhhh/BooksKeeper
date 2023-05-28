@@ -429,6 +429,7 @@
 7. [发现自己的优势.pdf](https://pan.baidu.com/s/15jA0SrhQyiV2qllWb6phVA) 提取码: 42xb
 8. [跃迁：成为高手的技术.pdf](https://pan.baidu.com/s/1251F5mbgET-rx8SaEvXoaA) 提取码: 85se
 9. [轻松学会独立思考.pdf](https://pan.baidu.com/s/1QPze1aHjS_xgj6RDLQ5ooQ) 提取码: vxt6
+10. [精进.epub](https://pan.baidu.com/s/188RxnQN8eZQ8GjuZ3MxCbA) 提取码: n8xp
 
 ### 轻松【应对职场】的10本书
 
