@@ -392,6 +392,7 @@
 6. [人际的奥秘.epub](https://pan.baidu.com/s/1AnN1rCHvrLpXuZED1hd6ZA) 提取码: q5v6
 7. [好关系是麻烦出来的.epub](https://pan.baidu.com/s/1ECN_K2sI-ggF67WtnCVnrA) 提取码: miga
 8. [掌控关系.epub](https://pan.baidu.com/s/1PtoXJEXZIzlxVDGtUdZydw) 提取码: gwj4
+9. [人际交往中的心理博弈.pdf](https://pan.baidu.com/s/14A2i754ZCYPycnqIt5212Q) 提取码: 249i
 
 ### 提升【学习力】的10本书
 
